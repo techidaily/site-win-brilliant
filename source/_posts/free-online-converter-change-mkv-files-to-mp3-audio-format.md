@@ -1,7 +1,7 @@
 ---
 title: "Free Online Converter: Change MKV Files to MP3 Audio Format"
-date: 2024-09-10 22:18:46
-updated: 2024-09-13 11:40:42
+date: 2024-09-11T08:37:25.879Z
+updated: 2024-09-16T02:38:17.033Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/925e71f91fee67d832ccee7c6f17e9bb429f4160ded041f221da6fa3c4abad49.jpg
@@ -176,6 +176,13 @@ Cet article vous présente les réglages de performance pour les jeux que vous p
 
 Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, afin de pouvoir suivre vos progrès et tester les réglages qui fonctionnent. De nombreux jeux les ont préinstallés, mais si vous installez [MSI Afterburner](https://www.msi.com/Landing/afterburner/graphics-cards), vous ne serez jamais sans cet outil utile dans n'importe quel jeu.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 
 
 Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
@@ -209,6 +216,13 @@ Voici quelques liens vers les mises à jour des pilotes des fabricants les plus 
 * [Pilotes AMD](https://www.amd.com/en/support)
 * [Pilotes NVIDIA](https://www.nvidia.com/Download/index.aspx)
 * [Pilotes Intel Graphics](https://www.intel.com/content/www/us/en/support/products/80939/graphics-drivers.html)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Installer DirectX 12
 
@@ -287,6 +301,13 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Régler le panneau de contrôle NVIDIA
 
 Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiques à la carte dans le panneau de configuration. Voici quelques-uns des meilleurs paramètres Windows 10 pour les cartes NVIDIA pour les jeux.
@@ -362,6 +383,13 @@ Pour trouver votre adresse IP, appuyez sur la   **touche Windows** \+ **X** et s
 
 Vous pouvez maintenant retrouver le dossier avec la bonne adresse IP. Cliquez avec le bouton droit de la souris sur ce dossier et sélectionnez **Nouveau** \- **Valeur DWORD (32 bits)**. Vous devrez créer deux de ces valeurs : **TcpAckFrequency** et **TCPNoDelay**. Double-cliquez sur chacune d'elles et réglez leurs paramètres sur **1**. L'algorithme de Nagle est maintenant désactivé.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Surcadencez votre carte graphique
 
 Overclocker vos cartes graphiques signifie les pousser au-delà des spécifications affichées sur la boîte. De nombreuses cartes récentes disposent d'une fonction automatique permettant de le faire dans les paramètres de contrôle, mais il existe également des moyens de le faire manuellement. Veillez à bien connaître votre carte graphique, car si vous repoussez ses limites, elle risque de surchauffer. 
@@ -419,6 +447,13 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 2. Pour la ventilation, essayez de surélever votre ordinateur portable ou utilisez un bureau conçu pour les ordinateurs portables.
 3. Réglez les paramètres de vos ventilateurs pour qu'ils ne soient pas trop sollicités.
 4. Si vous le pouvez, jouez sur votre ordinateur portable dans un environnement frais.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mettez à niveau votre GPU et votre RAM
 
@@ -536,11 +571,27 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/urge-video-popularity-with-essential-seo-aids/"><u>[New] Surge Video Popularity with Essential SEO Aids</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unite-video-files-into-playlist-assembly/"><u>2024 Approved Unite Video Files Into Playlist Assembly</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-sound-glitches-and-echo-issues-on-your-pc-solutions-for-windows-11-and-7/"><u>Fixing Sound Glitches and Echo Issues on Your PC - Solutions for Windows 11 & 7</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-vivo-s17e-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Vivo S17e Phone Screen?</u></a></li>
+<li><a href="https://windows11.techidaily.com/seamless-system-integration-enable-windows-subsystem-for-linux/"><u>Seamless System Integration: Enable Windows Subsystem for Linux</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-motorola-edge-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-removing-sound-from-mp4-videos-across-windows-macos-and-web-services/"><u>Step-by-Step Guide: Removing Sound From MP4 Videos Across Windows, macOS & Web Services</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/supercharge-your-game-trailers-with-keywords-for-2024/"><u>Supercharge Your Game Trailers with Keywords for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ultimate-iphone-video-transformation-tool-factory-pro-edition/"><u>Ultimate iPhone Video Transformation Tool: Factory Pro Edition</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vobmp4dvd/"><u>VOBファイルからMP4へのDVD変換手順</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/webm-format-explained-master-the-art-of-opening-and-conversion-techniques/"><u>WebM Format Explained: Master the Art of Opening & Conversion Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-mp4mp3/"><u>Windows 11での動画・音楽再生音量設定 - MP4、MP3含む多形式対応ガイド</u></a></li>
+</ul></div>
+

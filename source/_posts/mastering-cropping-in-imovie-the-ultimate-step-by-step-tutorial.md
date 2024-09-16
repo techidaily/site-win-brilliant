@@ -1,7 +1,7 @@
 ---
 title: "Mastering Cropping in iMovie: The Ultimate Step-by-Step Tutorial"
-date: 2024-09-10 13:39:50
-updated: 2024-09-13 10:54:23
+date: 2024-09-11T08:34:47.474Z
+updated: 2024-09-16T01:44:13.421Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/8bc720ee0adbf09ae88a648a38e027832e102c5d3884a2078035ea55eb60772c.jpg
@@ -192,6 +192,13 @@ Chaque jeu possède des paramètres graphiques spécifiques qui peuvent vous aid
 2. **Flou de mouvement :** Pour rendre les choses plus réalistes, les jeux intègrent des flous de mouvement afin d'émuler la vie réelle. Le désactiver peut souvent vous aider à économiser de la puissance graphique.
 3. **Synchronisation verticale :** Parfois, lorsque vous vous déplacez rapidement, la carte graphique ne peut pas suivre et l'écran semble se déchirer en son milieu. La synchronisation verticale aide à résoudre ce problème mais ajoute un certain décalage. Une façon de corriger ce problème est d'utiliser le VSync adaptatif ou le Triple Buffering. Vous utiliserez davantage de puissance de la carte graphique, mais vous trouverez un juste milieu entre les déchirures et le décalage.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Mettez à jour les pilotes de votre GPU
 
 Le GPU (Graphics Processing Unit) est crucial pour votre expérience de jeu et pour les performances de votre PC dans les jeux, mais vous devez maintenir les pilotes de votre GPU à jour pour en profiter. De plus, un pilote obsolète peut entraîner des bogues, des problèmes et des pannes du système. Nous vous recommandons donc de prendre ce problème au sérieux et de prendre soin de vos pilotes.
@@ -270,6 +277,19 @@ Si vous souhaitez conserver un minimum de graphismes pour que votre interface n'
 
 ![](https://cdn.staticont.net/default/0012/47/297019451ab2d6ffba248c33b083ec10c2390f59.webp)
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Le problème ici est le même qu'avec Windows Mises à jour. Steam met automatiquement à jour tous vos jeux, même ceux auxquels vous n'avez pas joué depuis longtemps. Les mises à jour en arrière-plan consomment la mémoire de votre PC et peuvent ralentir les processus de jeu.
 
 Pour empêcher Steam de mettre à jour les jeux pendant que vous jouez, allez dans votre client Steam et trouvez les options de mise à jour dans **Steam** \- **Paramètres** \- **Téléchargements**. Décochez la case **Autoriser les téléchargements pendant le jeu**.
@@ -297,6 +317,13 @@ Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiq
 4. Mode faible latence : Activez-le.
 5. Mode de gestion de l'énergie : Passez à **Préférer les performances maximales**.
 6. Optimisation Threaded : Passez à **Auto**.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Régler le centre de contrôle AMD/ATI
 
@@ -407,6 +434,13 @@ Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur 
 
 Windows 10 dispose de nombreuses fonctions d'économie d'énergie pour les ordinateurs portables afin de les maintenir en vie pendant de plus longues durées. Cela affectera considérablement l'expérience de jeu car votre RAM, vos cartes graphiques et votre CPU ne fonctionneront pas à pleine capacité. Pour remédier à ce problème, connectez votre ordinateur portable à son alimentation externe et assurez-vous que vos paramètres de contrôle permettent d'obtenir des performances optimales lorsqu'il est connecté.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Utiliser un plan d'alimentation performant
 
 Pour modifier votre plan d'alimentation, cliquez sur la   **touche Windows** \+ **I**, tapez "alimentation" dans la zone de recherche, choisissez **Paramètres d'alimentation et de veille**, puis **Paramètres d'alimentation supplémentaires**. Si vous ne voyez pas de plan d'alimentation haute performance dans la partie gauche de l'écran, cliquez sur **Créer un plan d'alimentation** et choisissez **Haute performance**.
@@ -492,6 +526,13 @@ Si vous voulez savoir comment rendre votre ordinateur plus rapide pour jouer, vo
 
 Lorsque l'on compare l'expérience de jeu des versions précédentes de Windows à Windows 10, l'amélioration des performances est extraordinaire. Si vous n'êtes pas sûr de vouloir faire une mise à jour, la décision est simple. Windows 10 offrira toujours une meilleure expérience.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Comment obtenir 60 fps dans un jeu ?
 
 Atteindre 60 FPS dans un jeu n'est pas différent des conseils pour accélérer votre système en général, mais voici ce que vous pouvez faire :
@@ -536,11 +577,26 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-discovering-10-must-love-aspects-in-filmora-editing-for-2024/"><u>[New] Discovering 10 Must-Love Aspects in Filmora Editing for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-ranking-of-free-easy-to-use-image-overlay-apps-on-smartphones/"><u>[Updated] In 2024, Ranking of Free, Easy-to-Use Image Overlay Apps on Smartphones</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-radiance-routines-pro-tips-for-video-illumination/"><u>[Updated] Radiance Routines Pro Tips for Video Illumination</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/can-we-fully-reliance-on-zerogpt-doubts-remain/"><u>Can We Fully Reliance On ZeroGPT? Doubts Remain</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-solutions-to-get-your-cssource-up-and-running-again/"><u>Effective Solutions to Get Your CS:Source Up and Running Again</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-exploring-the-capabilities-of-screenflow-on-mac-devices/"><u>In 2024, Exploring the Capabilities of ScreenFlow on Mac Devices</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726026902836-pc/"><u>PCにて自らの声を録音するステップバイステップマニュアル</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-tecno-pova-6-pro-5g-by-drfone-android/"><u>Three Ways to Sim Unlock Tecno Pova 6 Pro 5G</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ultimate-iphone-video-transformation-tool-factory-pro-edition/"><u>Ultimate iPhone Video Transformation Tool: Factory Pro Edition</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vobmp4dvd/"><u>VOBファイルからMP4へのDVD変換手順</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/webm-format-explained-master-the-art-of-opening-and-conversion-techniques/"><u>WebM Format Explained: Master the Art of Opening & Conversion Techniques</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-mp4mp3/"><u>Windows 11での動画・音楽再生音量設定 - MP4、MP3含む多形式対応ガイド</u></a></li>
+</ul></div>
+
