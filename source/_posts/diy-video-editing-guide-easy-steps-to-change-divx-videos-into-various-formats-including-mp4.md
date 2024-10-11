@@ -1,7 +1,7 @@
 ---
 title: "DIY Video Editing Guide: Easy Steps to Change DivX Videos Into Various Formats Including MP4"
-date: 2024-10-01T20:39:45.394Z
-updated: 2024-10-05T21:07:56.970Z
+date: 2024-10-10T16:05:44.028Z
+updated: 2024-10-11T16:18:21.830Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/177db7c45381f8f94f304fef5764a3ae21d49762f0d50b119bc79b8987d4ee6b.jpg
@@ -156,6 +156,13 @@ Afficher plus
 
 ![](https://cdn.staticont.net/pages/0013/24/59bfacce83c98f6e29023d9167e646142e92751a.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
 
 [Télécharger gratuitement](https://tools.techidaily.com/movavi/products/)
@@ -181,6 +188,13 @@ Avant de commencer, il est toujours bon d'avoir un compteur de FPS dans le jeu, 
 Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
 
@@ -228,6 +242,13 @@ Utiliser le mode de jeu Windows 10
 
 ![](https://cdn.staticont.net/default/0012/47/d22e37788bfd390747dc00a19758815599d522df.webp)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Voici un moyen simple et rapide d'optimiser Windows 10 pour les jeux en utilisant un outil intégré au système. Le mode Jeu, apparu dans les versions les plus récentes du système d'exploitation, est conçu pour améliorer l'expérience de jeu en consacrant davantage de ressources système aux jeux. Il empêche également d'autres programmes, tels que Windows Update, d'accaparer les ressources du système pendant que vous jouez.
 
 Pour localiser les paramètres du mode jeu, appuyez sur la   **touche Windows** \+ **I**, tapez "mode jeu" dans la boîte de recherche et cliquez sur **Contrôler le mode jeu pour optimiser votre PC pour les jeux**.
@@ -236,16 +257,16 @@ Dans le menu qui s'ouvre, cliquez sur **Mode Jeu**. Passez à **On** pour active
 
 Si vous ne trouvez pas ces paramètres, cela signifie que la dernière Windows Creators Update n'est pas installée sur votre PC.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Gérez vos heures actives
 
 ![](https://cdn.staticont.net/pages/0012/47/719892cfb3ccc9e05c269dd850ef3c6c37589035.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Oui, Windows 10 peut installer des mises à jour et redémarrer votre ordinateur en plein milieu de votre session de jeu sans même un simple "excusez-moi". Ouch. Cela peut être décevant, c'est le moins que l'on puisse dire, surtout si vous êtes un joueur compétitif et que votre sortie non planifiée peut affecter vos coéquipiers ou votre classement.
 
@@ -305,13 +326,6 @@ Si vous utilisez une carte graphique NVIDIA, il existe des paramètres spécifiq
 5. Mode de gestion de l'énergie : Passez à **Préférer les performances maximales**.
 6. Optimisation Threaded : Passez à **Auto**.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Régler le centre de contrôle AMD/ATI
 
 Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disent qu'elles rivalisent même avec leur concurrent NVIDIA. Modifiez ces paramètres pour optimiser les jeux de Windows 10.
@@ -323,6 +337,13 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 ### Réduire la résolution dans un jeu
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Désactiver l'accélération de la souris
 
@@ -409,13 +430,6 @@ C'est l'un des services faciles à désactiver sur Windows 10\. Ces programmes e
 * Définissez la **valeur** sur **0**.
 * Cliquez sur **OK**.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 
 
 Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
@@ -444,6 +458,13 @@ Les ordinateurs portables sont réputés pour leur surchauffe, car tous les comp
 ### Mettez à niveau votre GPU et votre RAM
 
 Nous avons déjà abordé ce sujet pour les PC, mais votre ordinateur portable peut également être équipé d'un processeur graphique et d'une mémoire vive. Suivez les mêmes protocoles, et si vous n'avez pas l'habitude de travailler avec des ordinateurs portables, il est préférable de confier l'installation à un technicien expérimenté.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 
 
@@ -477,17 +498,10 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 
@@ -514,10 +528,10 @@ Il y a une longue liste de choses qui pourraient ralentir votre ordinateur. Voic
 5. Le système fonctionne avec des paramètres de performance inférieurs pour économiser la batterie.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Comment faire fonctionner un ordinateur plus rapidement ?
@@ -544,13 +558,6 @@ Atteindre 60 FPS dans un jeu n'est pas différent des conseils pour accélérer 
 4. Vérifiez les paramètres graphiques de votre jeu.
 5. Installez les derniers pilotes pour votre carte graphique
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pourquoi ai-je des fps faibles sur mon PC haut de gamme ?
 
 La baisse du nombre de FPS se produit lorsque votre ordinateur n'a pas la mémoire ou la puissance nécessaire pour faire tourner le jeu à pleine vitesse. Parmi les problèmes les plus courants à l'origine d'une baisse du nombre d'images par seconde, citons les pilotes de cartes graphiques obsolètes, les cartes graphiques de qualité inférieure, les vieux processeurs et le manque de mémoire vive. 
@@ -558,13 +565,6 @@ La baisse du nombre de FPS se produit lorsque votre ordinateur n'a pas la mémoi
 Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est équipé du dernier cri. Le matériel est plus important que les autres caractéristiques de conception ou de logiciel. En outre, les jeux vidéo modernes placent toujours la barre plus haut en matière de capacité de performance, ce qui est donc relatif d'un jeu à l'autre.
 
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Avez-vous des questions ?
 
@@ -601,22 +601,21 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-quick-guide-mastering-screenshot-and-screen-record-on-mac/"><u>[New] 2024 Approved Quick Guide Mastering Screenshot & Screen Record on Mac</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-how-to-reverse-video-playback-on-android-phones/"><u>[Updated] 2024 Approved How to Reverse Video Playback on Android Phones</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/2024s-leading-photo-organizer-applications-compare-winmac-free-vs-premium-solutions/"><u>2024'S Leading Photo Organizer Applications: Compare Win/Mac, Free vs Premium Solutions</u></a></li>
-<li><a href="https://fox-access.techidaily.com/best-free-webm-players/"><u>Best Free WebM Players</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/como-fundir-imagens-perfeitamente-melhores-metodos-do-photoshop-e-ferramentas-compativeis-dicas-atualizadas-para-2eiro-de-2024/"><u>Como Fundir Imagens Perfeitamente: Melhores Métodos Do Photoshop® E Ferramentas Compatíveis - Dicas Atualizadas Para 2Eiro De 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/comprehensive-tutorial-to-overcome-the-sims-4-non-opening-challenge/"><u>Comprehensive Tutorial to Overcome the Sims 4 Non-Opening Challenge</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/descargar-musica-sin-problemas-los-13-convertidores-online-libres-de-youtube-a-mp3-lo-mejor-del-202-cuyo/"><u>Descargar Música Sin Problemas: Los 13 Convertidores Online Libres De YouTube a MP3, ¡Lo Mejor Del 202 Cuyo!</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-to-follow-guide-to-refresh-your-windows-7-wireless-network-drivers/"><u>Easy-to-Follow Guide to Refresh Your Windows 7 Wireless Network Drivers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-mac-app-for-securely-converting-dvds-to-ipod-friendly-formats-with-macx/"><u>Free Mac App for Securely Converting DVDs to iPod-Friendly Formats with MacX</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-apple-iphone-11-pro-max-smoothly-by-drfone-ios/"><u>How To Remove iCloud On Apple iPhone 11 Pro Max Smoothly</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/instantly-convert-alaw-audio-to-crystal-clear-wav-no-cost-fast-and-reliable-service-by-yourservicename/"><u>Instantly Convert ALAW Audio to Crystal Clear WAV - No Cost, Fast & Reliable Service by [YourServiceName]</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mkv-to-m2ts-transformation-seamless-cost-free-conversion-online-by-movavi/"><u>MKV to M2TS Transformation - Seamless, Cost-Free Conversion Online by Movavi</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726226192286-movavi/"><u>Movavi: 모바일 오디오 편집 소프트웨어에서 가장 유용한 기능</u></a></li>
-<li><a href="https://video-capture.techidaily.com/recording-techniques-for-stellar-voice-over-audio/"><u>Recording Techniques for Stellar Voice-Over Audio</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/transformez-vos-projets-video-grace-au-chroma-key-decouvrez-comment-creer-vos-scenes-de-reve/"><u>Transformez Vos Projets Vidéo Grâce Au 'Chroma Key' - Découvrez Comment Créer Vos Scènes De Rêve!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/trasforma-i-tuoi-file-mxf-in-mp4-gratuitamente-su-internet-con-moveavew/"><u>Trasforma I Tuoi File MXF in MP4 Gratuitamente Su Internet Con Moveavew</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723205158907-unraveling-the-mystery-behind-google-chrome-critical-error-solutions-at-hand/"><u>Unraveling The Mystery Behind Google Chrome Critical Error - Solutions at Hand</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-speedy-sonic-tuning-devices-index-pc-tablet/"><u>[Updated] Speedy Sonic Tuning Devices Index (PC, Tablet)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-insiders-pathway-to-trustworthy-insta-selfies/"><u>[Updated] The Insider’s Pathway to Trustworthy Insta Selfies</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mp4-6/"><u>「無料のMP4へのビデオ変換簡単ガイド: シェアランキング上位6つ」</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/5pya5paw44ob44ot44o844og44ow44od44kv44gn5qey44cf44gq5yuv55s75b2i5byp44ks44k544og44o844k644gr5yan55sf44gz44kl44kz44oe/"><u>最新チロームブックで様々な動画形式をスムーズに再生するコツ</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/a-comprehensive-walkthrough-of-using-the-windows-capture-utility-essential-techniques-and-guidelines/"><u>A Comprehensive Walkthrough of Using the Windows Capture Utility - Essential Techniques and Guidelines</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/androidflv/"><u>Android上で簡単にFLV動画が視聴可能になる手順集</u></a></li>
+<li><a href="https://fox-links.techidaily.com/beyond-wonders-the-unseen-disadvantages-in-vr-for-2024/"><u>Beyond Wonders The Unseen Disadvantages in VR for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/breaking-boundaries-top-6-artists-leading-nft-frontier/"><u>Breaking Boundaries Top 6 Artists Leading NFT Frontier</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-the-ultimate-free-netflix-plugin-for-kodi-1918-effortless-streaming-setup/"><u>Download the Ultimate Free Netflix Plugin for Kodi 19/18 – Effortless Streaming Setup</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/editing-wmv-videos-for-free-top-software-solutions-for-seamless-online-and-offline-editing/"><u>Editing WMV Videos for Free: Top Software Solutions for Seamless Online and Offline Editing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ative-youtube-channel-names-for-the-next-gen-vloggers-and-film-makers-keep-it-under-or-at-156-characters-for-2024/"><u>Innovative YouTube Channel Names for the Next Gen Vloggers and Film Makers (Keep It Under or at 156 Characters) for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/learn-the-no-cost-approach-mastering-cd-extraction-with-vlcs-simple-steps/"><u>Learn the No-Cost Approach: Mastering CD Extraction with VLC's Simple Steps</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-fcp-x-effects-made-simple-a-3-step-tutorial-for-beginners/"><u>New 2024 Approved FCP X Effects Made Simple A 3-Step Tutorial for Beginners</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-simple-art-of-capturing-breathtaking-slow-motion-shots-with-android/"><u>The Simple Art of Capturing Breathtaking Slow-Motion Shots with Android</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-critiques-and-praises-a-breakdown-of-recent-viber-out-testimonials/"><u>Top Critiques & Praises: A Breakdown of Recent Viber Out Testimonials</u></a></li>
 </ul></div>
 
