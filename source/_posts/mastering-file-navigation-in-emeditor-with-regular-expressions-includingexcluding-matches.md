@@ -1,7 +1,7 @@
 ---
 title: "Mastering File Navigation in EmEditor with Regular Expressions: Including/Excluding Matches"
-date: 2024-10-09T17:34:26.117Z
-updated: 2024-10-11T17:13:39.186Z
+date: 2024-10-15T17:48:51.210Z
+updated: 2024-10-17T17:21:21.049Z
 tags:
   - product
 categories:
@@ -82,24 +82,31 @@ Viewing 6 posts - 1 through 6 (of 6 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-enhance-phantom-flying-top-11-add-on-gear/"><u>[New] In 2024, Enhance Phantom Flying Top 11 Add-On Gear</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-quick-reference-guide-to-mastering-mobizens-screen-recording-tech/"><u>[Updated] 2024 Approved Quick Reference Guide to Mastering Mobizen's Screen Recording Tech</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-size-your-content-smartly-video-tips-for-instagram-excellence/"><u>[Updated] In 2024, Size Your Content Smartly Video Tips for Instagram Excellence</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-ultra-brief-on-achieving-clear-background-effects/"><u>[Updated] Ultra-Brief on Achieving Clear Background Effects</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-convertidor-de-archivos-gratuito-en-linea-para-cambiar-wav-a-mp3-con-movavi/"><u>1. Convertidor De Archivos Gratuito en Línea Para Cambiar WAV a MP3 Con Movavi</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-mastering-the-art-of-creating-stunning-collages-with-your-iphone-top-2-techniques-revealed/"><u>1. Mastering the Art of Creating Stunning Collages with Your iPhone: Top 2 Techniques Revealed!</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-seamless-content-propagation-beyond-youtube-and-facebook/"><u>In 2024, Seamless Content Propagation Beyond YouTube and Facebook</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/jpeg-zu-jpg-konvertieren-kostenlose-online-losungen-von-movavi-schnelle-und-einfache-bearbeitung/"><u>JPEG-Zu-JPG Konvertieren: Kostenlose Online-Lösungen Von Movavi – Schnelle Und Einfache Bearbeitung</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mastering-mac-screen-capture-an-ultimate-tutorial-the-movavi-way/"><u>Mastering Mac Screen Capture: An Ultimate Tutorial - The Movavi Way</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mpeg-ai-formati-di-file-m4am4b-migrazione-senza-costi-con-movavi-converter/"><u>MPEG Ai Formati Di File M4A/M4B: Migrazione Senza Costi Con Movavi Converter!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/os-13-melhores-sites-gratuitos-para-assistir-animes-online-e-streaming-ilimitado-no-ano-de/"><u>Os 13 Melhores Sites Gratuitos Para Assistir Animes Online E Streaming Ilimitado No Ano De</u></a></li>
-<li><a href="https://media-tips.techidaily.com/1723620227859-transform-your-dat-videos-into-mp4-in-a-flash-discover-the-three-best-converter-applications/"><u>Transform Your DAT Videos Into MP4 in a Flash - Discover the Three Best Converter Applications</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-conquerors-of-the-past-the-prime-7-battle-simulations/"><u>[New] In 2024, Conquerors of the Past The Prime 7 Battle Simulations</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-blueprint-for-mastering-picsart/"><u>[New] The Ultimate Blueprint for Mastering PicsArt</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-pickups-for-novice-gopro-owners/"><u>[Updated] Prime Pickups for Novice GoPro Owners</u></a></li>
+<li><a href="https://techtrends.techidaily.com/10-effective-methods-for-converting-dvd-video-files-into-mp4-format-on-windows-macos-and-linux/"><u>10 Effective Methods for Converting DVD Video Files Into MP4 Format on Windows, MacOS & Linux</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/como-clonar-un-sistema-operativo-en-una-ssd-de-samsung-sin-necesidad-de-reinstalacion/"><u>Cómo Clonar Un Sistema Operativo en Una SSD De Samsung Sin Necesidad De Reinstalación</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-code-0x887a0006-a-step-by-step-guide-to-troubleshooting-and-resolution/"><u>Error Code 0X887A0006: A Step-by-Step Guide to Troubleshooting and Resolution</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/error-the-resource-youre-looking-for-doesnt-exist/"><u>Error: The Resource You're Looking For Doesn't Exist</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/experten-guide-zum-kopieren-des-c-laufwerks-zu-einer-ssdhhd-in-wenigen-schritten-anwenderfreundliche-anleitung-fur-windows-111087/"><u>Experten-Guide Zum Kopieren Des C-Laufwerks Zu Einer SSD/HHD in Wenigen Schritten – Anwenderfreundliche Anleitung Für Windows 11/10/8/7</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-vivo-x-fold-2-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Vivo X Fold 2 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://article-files.techidaily.com/look-up-tables-enhancing-visual-storytelling/"><u>Look-Up Tables Enhancing Visual Storytelling</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/praktik-restorasi-data-drive-c-step-by-step-for-windows-operating-systems-7-8-10-11/"><u>Praktik Restorasi Data Drive C Step by Step for Windows Operating Systems (7, 8, 10, 11)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/supercharge-your-video-subtitling-explore-leading-internet-tools-today-for-2024/"><u>Supercharge Your Video Subtitling Explore Leading Internet Tools Today for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tecnica-detallada-para-replicar-el-sistema-operativo-windows-8-y-81-al-otro-disco-duro/"><u>Técnica Detallada Para Replicar El Sistema Operativo Windows 8 Y 8.1 Al Otro Disco Duro</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-the-aomei-software-usage-agreement-comprehensive-guide-and-conditions/"><u>Understanding the AOMEI Software Usage Agreement: Comprehensive Guide and Conditions</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/vr-readiness-your-space-and-tech-essentials/"><u>VR Readiness Your Space and Tech Essentials</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/wie-kann-ich-ungewiesene-festplattenpartitionen-wiederherstellen-myrecovery-guide/"><u>Wie Kann Ich Ungewiesene Festplattenpartitionen Wiederherstellen - MyRecovery Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-vs-windows-10-vs-windows-7-which-version-should-you-upgrade-to/"><u>Windows 11 Vs. Windows 10 Vs. Windows 7 - Which Version Should You Upgrade To?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728476729081-outlook/"><u>もう止まらない！Outlookの自動応答が正常に機能しない理由とそれを修正する方法</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
