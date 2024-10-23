@@ -1,7 +1,7 @@
 ---
 title: "Mastering File Navigation in EmEditor with Regular Expressions: Including/Excluding Matches"
-date: 2024-10-15T17:48:51.210Z
-updated: 2024-10-17T17:21:21.049Z
+date: 2024-10-18T02:42:22.847Z
+updated: 2024-10-22T23:25:24.124Z
 tags:
   - product
 categories:
@@ -82,31 +82,29 @@ Viewing 6 posts - 1 through 6 (of 6 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-conquerors-of-the-past-the-prime-7-battle-simulations/"><u>[New] In 2024, Conquerors of the Past The Prime 7 Battle Simulations</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-blueprint-for-mastering-picsart/"><u>[New] The Ultimate Blueprint for Mastering PicsArt</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-prime-pickups-for-novice-gopro-owners/"><u>[Updated] Prime Pickups for Novice GoPro Owners</u></a></li>
-<li><a href="https://techtrends.techidaily.com/10-effective-methods-for-converting-dvd-video-files-into-mp4-format-on-windows-macos-and-linux/"><u>10 Effective Methods for Converting DVD Video Files Into MP4 Format on Windows, MacOS & Linux</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/como-clonar-un-sistema-operativo-en-una-ssd-de-samsung-sin-necesidad-de-reinstalacion/"><u>Cómo Clonar Un Sistema Operativo en Una SSD De Samsung Sin Necesidad De Reinstalación</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/error-code-0x887a0006-a-step-by-step-guide-to-troubleshooting-and-resolution/"><u>Error Code 0X887A0006: A Step-by-Step Guide to Troubleshooting and Resolution</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/error-the-resource-youre-looking-for-doesnt-exist/"><u>Error: The Resource You're Looking For Doesn't Exist</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/experten-guide-zum-kopieren-des-c-laufwerks-zu-einer-ssdhhd-in-wenigen-schritten-anwenderfreundliche-anleitung-fur-windows-111087/"><u>Experten-Guide Zum Kopieren Des C-Laufwerks Zu Einer SSD/HHD in Wenigen Schritten – Anwenderfreundliche Anleitung Für Windows 11/10/8/7</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-any-vivo-x-fold-2-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Vivo X Fold 2 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://article-files.techidaily.com/look-up-tables-enhancing-visual-storytelling/"><u>Look-Up Tables Enhancing Visual Storytelling</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/praktik-restorasi-data-drive-c-step-by-step-for-windows-operating-systems-7-8-10-11/"><u>Praktik Restorasi Data Drive C Step by Step for Windows Operating Systems (7, 8, 10, 11)</u></a></li>
-<li><a href="https://fox-access.techidaily.com/supercharge-your-video-subtitling-explore-leading-internet-tools-today-for-2024/"><u>Supercharge Your Video Subtitling Explore Leading Internet Tools Today for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/tecnica-detallada-para-replicar-el-sistema-operativo-windows-8-y-81-al-otro-disco-duro/"><u>Técnica Detallada Para Replicar El Sistema Operativo Windows 8 Y 8.1 Al Otro Disco Duro</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-the-aomei-software-usage-agreement-comprehensive-guide-and-conditions/"><u>Understanding the AOMEI Software Usage Agreement: Comprehensive Guide and Conditions</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/vr-readiness-your-space-and-tech-essentials/"><u>VR Readiness Your Space and Tech Essentials</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/wie-kann-ich-ungewiesene-festplattenpartitionen-wiederherstellen-myrecovery-guide/"><u>Wie Kann Ich Ungewiesene Festplattenpartitionen Wiederherstellen - MyRecovery Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-11-vs-windows-10-vs-windows-7-which-version-should-you-upgrade-to/"><u>Windows 11 Vs. Windows 10 Vs. Windows 7 - Which Version Should You Upgrade To?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728476729081-outlook/"><u>もう止まらない！Outlookの自動応答が正常に機能しない理由とそれを修正する方法</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-complete-guide-to-youtube-ad-free-viewing-chrome-and-safari/"><u>[New] In 2024, The Complete Guide to YouTube Ad-Free Viewing (Chrome & Safari)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-perfecting-profiles-how-to-embed-linktree-on-tiktok-seamlessly/"><u>[New] Perfecting Profiles How to Embed Linktree on TikTok Seamlessly</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-first-steps-in-digital-content-top-10-easy-to-make-youtube-projects/"><u>[Updated] 2024 Approved First Steps in Digital Content Top 10 Easy-to-Make YouTube Projects</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pro-webcams-8-your-go-to-for-flawless-livestreams/"><u>[Updated] Pro Webcams 8 Your Go-To for Flawless Livestreams</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728487345441-youtube5/"><u>如何在YouTube上恢复已删除的视频：5个技巧与指南</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-traffic-with-cookiebot-the-ultimate-seo-and-marketing-solution-for-modern-websites/"><u>Boost Traffic With Cookiebot: The Ultimate SEO and Marketing Solution for Modern Websites</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/complete-guide-restoring-files-from-an-iomega-usb-drive/"><u>Complete Guide: Restoring Files From an iOmega USB Drive</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/descubra-porque-sua-cacamba-de-reciclagem-parece-vazia-quando-na-verdade-nao-e/"><u>Descubra Porquê Sua Caçamba De Reciclagem Parece Vazia Quando Na Verdade Não É</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/discover-the-ultimate-selection-of-8-leading-photo-retouching-tools-for-vintage-images-on-your-smartphone/"><u>Discover the Ultimate Selection of 8 Leading Photo Retouching Tools for Vintage Images on Your Smartphone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/dual-mode-replica-synology-tra-due-network-attached-storage-device-with-two-built-in-nas-units/"><u>Dual-Mode Replica Synology Tra Due Network Attached Storage Device with Two Built-In NAS Units</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-poco-m6-pro-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Poco M6 Pro 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/lenovo-ideapad-onekey-rescue/"><u>Lenovo IdeaPad OneKey Rescue: 使用方法と復元プロセスのガイド</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/podanie-skrupulatowe-zapasy-raid-eby-dyski-kluczowe-szyfrowaly-byly-ostatnio-niebezpieczne-dane/"><u>Podanie Skrupulatowe Zapasy RAID Eby Dyski Kluczowe Szyfrowaly Były Ostatnio Niebezpieczne Dane</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728462262354-sd/"><u>SD卡数据恢复技巧：如何成功不花钱</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-solution-addressing-and-repairing-boot-time-windows-script-host-errors/"><u>Step-by-Step Solution: Addressing and Repairing Boot-Time Windows Script Host Errors</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
