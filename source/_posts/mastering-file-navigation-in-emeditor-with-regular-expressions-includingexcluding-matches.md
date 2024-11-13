@@ -1,7 +1,7 @@
 ---
 title: "Mastering File Navigation in EmEditor with Regular Expressions: Including/Excluding Matches"
-date: 2024-10-31T16:46:34.111Z
-updated: 2024-11-04T00:36:45.318Z
+date: 2024-11-09T18:11:11.727Z
+updated: 2024-11-12T20:55:55.336Z
 tags:
   - product
 categories:
@@ -82,29 +82,31 @@ Viewing 6 posts - 1 through 6 (of 6 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-gear-for-video-blogging-top-rated-camera-lenses-revealed/"><u>[New] 2024 Approved Essential Gear for Video Blogging Top-Rated Camera Lenses Revealed</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-drive-more-traffic-effective-strategies-for-youtube-outros/"><u>[New] Drive More Traffic Effective Strategies for YouTube Outros</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-ideal-timekeepers-top-10-androidios-apps-for-your-big-day/"><u>[New] In 2024, Ideal Timekeepers Top 10 Android/iOS Apps for Your Big Day</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-visioncast-feedback-interface/"><u>[New] VisionCast Feedback Interface</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-digital-detailing-at-your-command/"><u>[Updated] Digital Detailing at Your Command</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/csv3/"><u>「CSVデータ失われるのを防ぐ無料ツールトップ3」</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/aktuelle-fehlerbehebungen-entfernung-von-youtube-inhalten-fur-die-jahre-2021-bis-2024/"><u>Aktuelle Fehlerbehebungen: Entfernung Von YouTube-Inhalten Für Die Jahre 2021 Bis 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comprehensive-guide-solving-the-ios-18-16-update-installation-issues-and-ensuring-data-safety/"><u>Comprehensive Guide: Solving the iOS 18-16 Update Installation Issues & Ensuring Data Safety</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/hp-laptop-effiziente-image-wiederaufnahme-mit-myrecover-die-ultimative-losung-fur-verlorene-fotos/"><u>HP Laptop: Effiziente Image-Wiederaufnahme Mit MyRecover – Die Ultimative Lösung Für Verlorene Fotos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-high-definition-zoom-features/"><u>In 2024, Navigating High-Definition Zoom Features</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-unleash-your-inner-gamer-best-free-voice-change-tool-for-valorant/"><u>In 2024, Unleash Your Inner Gamer Best Free Voice Change Tool for Valorant</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-the-new-features-a-guide-to-using-live-activities-in-ios-16/"><u>Mastering the New Features: A Guide to Using Live Activities in iOS 16</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/professionelle-windows-11-clone-tools-lizenzfrei-und-ohne-bootschwierigkeiten/"><u>Professionelle Windows 11 Clone-Tools - Lizenzfrei Und Ohne Bootschwierigkeiten</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-battle-of-innovation-deciding-between-apple-watch-ultra-and-apple-watch-series-8-expert-reviews-and-comparison-chart/"><u>The Battle of Innovation: Deciding Between Apple Watch Ultra & Apple Watch Series #8 | Expert Reviews & Comparison Chart</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-free-windows-usb-recovery-tools-and-applications/"><u>Ultimate Guide: FREE Window's USB Recovery Tools and Applications</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-the-hyper-v-os-load-failure-solutions-for-missing-operating-system-issues/"><u>Understanding the 'Hyper-V OS Load Failure': Solutions for Missing Operating System Issues</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/vanuit-ongelukkig-gegaan-hoe-uw-reconstructieverzoek-naar-voorraad-is-aangeklapt/"><u>Vanuit Ongelukkig Gegaan... Hoe Uw Reconstructieverzoek Naar Voorraad Is Aangeklapt!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-essential-list-8-leading-tools-for-video-translation-mastery/"><u>[New] 2024 Approved Essential List 8 Leading Tools for Video Translation Mastery</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-slide-swivel-and-shift-the-instagram-way-to-rotating-images-with-finesse/"><u>[New] 2024 Approved Slide, Swivel and Shift The Instagram Way to Rotating Images with Finesse</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-secrets-to-massive-channel-subscription-growth/"><u>[Updated] 2024 Approved Secrets to Massive Channel Subscription Growth</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/excel/"><u>【自由教學】快速找回丟失的 Excel 文件方法</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-xiaomi-14-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Xiaomi 14</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/best-aomei-onekey-recovery-versions-full-side-by-side-analysis/"><u>Best AOMEI OneKey Recovery Versions - Full Side-by-Side Analysis</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/complete-step-by-step-tutorial-safeguarding-your-iphone-with-ios-1navigate-protecting-and-recovering-data-on-macpc/"><u>Complete Step-by-Step Tutorial: Safeguarding Your iPhone with iOS 1Navigate | Protecting and Recovering Data on Mac/PC</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/elevate-your-live-recordings-on-facebook-with-4-methods-for-2024/"><u>Elevate Your Live Recordings on Facebook with 4 Methods for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-hp-deskjet-3050a-windows-printing-software-upgrade-available-now/"><u>Free HP Deskjet 3050A Windows Printing Software Upgrade Available Now</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/free-movie-marathon-discover-the-world-of-entertainment-with-crackle/"><u>Free Movie Marathon: Discover the World of Entertainment with Crackle</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guida-definitiva-allintegrazione-di-gmail-con-outlook-2016-un-tutorial-approfondito/"><u>Guida Definitiva All'integrazione Di Gmail Con Outlook 2016: Un Tutorial Approfondito</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/hikvision-ssdhdd/"><u>Hikvision SSDへ素早くHDDを移行する究極のガイド</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-safely-back-up-your-data-on-a-hard-drive-before-reformatting-with-windows-11-8-or-7/"><u>How to Safely Back Up Your Data on a Hard Drive Before Reformatting with Windows 11, 8 or 7</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-realme-12plus-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Realme 12+ 5G FRP Bypass</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-incremental-file-copies-using-the-robocopy-utility/"><u>Mastering Incremental File Copies Using the Robocopy Utility</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/steps-to-recover-removed-tweets-and-videos-on-twitter/"><u>Steps to Recover Removed Tweets and Videos on Twitter</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-affordable-tablets-comprehensive-reviews-by-tech-experts-zdnet/"><u>Top Affordable Tablets : Comprehensive Reviews by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-htc-u23-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive HTC U23 Screen | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vrouwtje-snelle-toegang-van-window-11-file-explorer-herstellen/"><u>Vrouwtje Snelle Toegang Van Window 11 File Explorer Herstellen</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
