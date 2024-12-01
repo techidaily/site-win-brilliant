@@ -1,7 +1,7 @@
 ---
 title: "Easy Setup: Enhanced Js Config Options with No-Language Limitations in EmEditor"
-date: 2024-11-19T03:00:39.565Z
-updated: 2024-11-23T05:14:32.388Z
+date: 2024-11-25T02:54:12.179Z
+updated: 2024-11-30T18:31:11.826Z
 tags:
   - product
 categories:
@@ -66,26 +66,25 @@ Viewing 5 posts - 1 through 5 (of 5 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-color-theory-and-how-to-use-it/"><u>[New] Color Theory And How To Use It</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-streamlined-video-calls-synchronizing-zoom-and-gmail-for-better-communication/"><u>[Updated] Streamlined Video Calls Synchronizing Zoom & Gmail for Better Communication</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728473401810-qnap-nas/"><u>「QNAP NAS上でシームレスな増分バックアップ実施ガイド」</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/2008-r2-etapes-faciles-et-astuces-doptimisation-seo/"><u>2008 R2 : Étapes Faciles Et Astuces D'Optimisation SEO</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-augmented-reality-stickers-by-google-unveiled-and-compared/"><u>2024 Approved Augmented Reality Stickers by Google Unveiled and Compared</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/como-satisfacer-los-requisitos-del-sistema-una-guia-completa/"><u>Cómo Satisfacer Los Requisitos Del Sistema: Una Guía Completa</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-motorola-edge-2023-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Motorola Edge 2023</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empowering-individuals-via-english-as-a-second-language/"><u>Empowering Individuals via English as a Second Language</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-film-lovers-answers-repository/"><u>In 2024, Film Lovers' Answers Repository</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/keyboard-commands-a-guide-to-retrieving-your-recently-erased-files/"><u>Keyboard Commands: A Guide to Retrieving Your Recently Erased Files</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/maximize-your-iphone-storage-with-easy-decluttering-tips-save-gigabytes-now/"><u>Maximize Your iPhone Storage with Easy Decluttering Tips - Save Gigabytes Now!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/recover-from-hard-drive-failure-effortlessly-discover-aomei-cloner-and-backup-mastery/"><u>Recover From Hard Drive Failure Effortlessly: Discover AOMEI Cloner & Backup Mastery</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-retrieving-data-safely-from-unformatted-external-drives/"><u>Step-by-Step Guide: Retrieving Data Safely From Unformatted External Drives</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/titre-la-meilleure-alternative-gratuite-a-synctoy-pour-les-systemes-dexploitation-windows-11-10-et-versions-anterieures/"><u>Titre : La Meilleure Alternative Gratuite À SyncToy Pour Les Systèmes D'exploitation Windows 11, 10 Et Versions Antérieures</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-tech-debate-is-oled-superior-to-amoled-or-ips/"><u>Top Tech Debate: Is OLED Superior to AMOLED or IPS?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-1110-update-restoration-and-repair-techniques/"><u>Windows 11/10 Update Restoration & Repair Techniques</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726222745347-mp3/"><u>오토로 영화에서 음성을 클립: 제공하는 신선한 MP3</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-a-streamlined-approach-simplifying-film-projects-with-movie-maker/"><u>[New] 2024 Approved A Streamlined Approach Simplifying Film Projects with Movie Maker</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-breaking-barriers-worlds-best-and-largest-shorts-downloaders/"><u>[New] 2024 Approved Breaking Barriers World’s Best & Largest Shorts Downloaders</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-exclusive-list-of-top-mobile-editing-software-for-iphoneandroid/"><u>[New] 2024 Approved Exclusive List of Top Mobile Editing Software for iPhone/Android</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-audio-to-art-crafting-music-videos-on-apple-devices-for-2024/"><u>[New] Audio to Art Crafting Music Videos on Apple Devices for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-boost-story-impact-with-customized-video-speed-settings/"><u>[New] In 2024, Boost Story Impact with Customized Video Speed Settings</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-realitys-new-horizons-analyzing-metaverse-and-omniverse-worlds/"><u>[Updated] Reality's New Horizons Analyzing Metaverse and Omniverse Worlds</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/come-fare-una-copia-di-sicurezza-del-disco-principale-in-windows-nove-e-dodici-tutorial-protezione-continua/"><u>Come Fare Una Copia Di Sicurezza Del Disco Principale in Windows Nove E Dodici - Tutorial Protezione Continua</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevate-your-mobile-art-with-elite-android-collages/"><u>Elevate Your Mobile Art with Elite Android Collages</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/essential-aspect-ratio-tips-for-social-media-videos-for-2024/"><u>Essential Aspect Ratio Tips for Social Media Videos for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-securely-backup-files-and-folders-on-hp-laptops-and-desktops-across-different-generations-of-windows-os/"><u>How to Securely Backup Files and Folders on HP Laptops & Desktops Across Different Generations of Windows OS</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-successfully-complete-windows-health-check-and-image-repair-using-dism/"><u>How to Successfully Complete Windows Health Check and Image Repair Using DISM</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-inverted-footage-whats-behind-instagrams-peculiarity/"><u>In 2024, Inverted Footage What's Behind Instagram's Peculiarity?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ultimate-step-by-step-tutorial-retrieving-your-files-safely-post-windows-10-refresh/"><u>Ultimate Step-by-Step Tutorial: Retrieving Your Files Safely Post Windows 10 Refresh</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unreal-engine-4-10/"><u>Unreal Engine 4で発生するクラッシュの原因と解消策: トップ10のテクニック</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728476905095-windows-11/"><u>Windows 11及以上版本裡如何回復被移除的用戶配置檔</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728487563445-windows-114/"><u>Windows 11用パーティションのクリア方法：4つの手順</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

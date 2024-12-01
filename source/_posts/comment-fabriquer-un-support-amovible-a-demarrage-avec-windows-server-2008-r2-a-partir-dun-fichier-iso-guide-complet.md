@@ -1,7 +1,7 @@
 ---
 title: "Comment Fabriquer Un Support Amovible À Démarrage Avec Windows Server 2008 R2 À Partir D'un Fichier ISO : Guide Complet"
-date: 2024-11-22T02:14:51.370Z
-updated: 2024-11-22T21:15:43.599Z
+date: 2024-11-26T22:12:47.203Z
+updated: 2024-11-30T16:01:35.227Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/eb4342f3aa6f1684d24f86318d0e954640b0c7c9aedf2dd2ccacfdac421d6e8a.jpg
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/eb4342f3aa6f1684d24f86318d0e954640b0c7c9a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Recover Files from Ransomware Attack \[Full Guide 2022\]
@@ -42,10 +42,6 @@ Share this: [![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-art
    4. [Method 4\. Recover from ransomware through system restore](https://tools.techidaily.com/ubackup/products/)
 3. [Conclusion](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is it possible to recover data from ransomware?
 
 I'm looking at a computer after it's been hit by some ransomware. The files have been encrypted. I am trying some guides in removal and recovery, but they don't seem to be of much help. If you have suggestions on how to recover files from ransomware, I would appreciate it.
@@ -56,13 +52,13 @@ If you are looking for methods on how to recover ransomware-infected files, you 
 
 [![Recover Files From Ransomware](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/others/recover-files-from-ransomware.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to recover files from ransomware attack in 4 ways
 
 Many solutions are available for you to solve how to recover data from ransomware attacks. We have selected some easy-to-implement methods for you. Read below for detailed information. 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1\. Recover files from ransomware with data recovery software
 
@@ -97,7 +93,7 @@ You can expand the Deleted files folder and Other missing files folder to select
 [![Select Deleted Excel Files Click Recover](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2\. Recover ransomware infected files via Backup and Restore
@@ -114,20 +110,16 @@ Step 2\. Tap on the **Restore my files** position in the Restore tab.
 
 ![Windows Backup Restore My Files](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3\. Click **Browse for files** to locate your lost data and choose to save your recovered files in your original location or another destination as needed.
 
 [![Browse For Files To Restore](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/browse-for-files-to-restore.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 3\. Get back files from ransomware using File History
@@ -138,6 +130,10 @@ Step 1\. Go to **Control Panel** \> **System and Security**, and click on **File
 
 [![File History](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/file-history.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2\. Press the **Restore personal files** button on the left panel. Please make sure your File History is turned on.
 
 [![Restore Personal Files](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-personal-files.png)
@@ -147,7 +143,11 @@ Step 3\. Find the files you want to recover and click the arrow pointing left or
 [![Restore Deleted File](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/restore-deleted-file.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 4\. Recover from ransomware through system restore
@@ -187,10 +187,6 @@ To prevent ransomware from attacking your computer and files again, we list seve
 * Report ransomware attacks to let authorities identify the attacker.
 * Regularly back up important data in case of emergencies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Ransomware can't be prevented. Though there are multiple ways for you to accomplish how to recover files from ransomware, prevention is easier than rescue. We highly recommend you backup your important data periodically.
@@ -206,10 +202,6 @@ Was the provided information useful? Your vote is important to us!
 [Kelsey](https://tools.techidaily.com/ubackup/products/) · Editor
 
 Kelsey is an English editor of AOMEI Technology. She is passionate about helping people find effective ways to deal with all problems in computer. She has great insights into data backup and recovery, disk partition and clone, and other data protection measures. She likes learn computer skills to improve herself and enjoy quality time with family and friends. 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Related Articles
 
@@ -231,6 +223,10 @@ Was the provided information useful? Your vote is important to us!
 
 [Yes](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Free Get MyRecover Now
 
 Recover deleted & lost data from any disasters in Windows.
@@ -240,6 +236,10 @@ Recover deleted & lost data from any disasters in Windows.
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
 
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -256,24 +256,18 @@ Recover deleted & lost data from any disasters in Windows.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-comprehensive-guide-to-exceptional-screen-recording-on-the-go-with-mobizen-for-2024/"><u>[New] Comprehensive Guide to Exceptional Screen Recording on the Go with Mobizen for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-8-free-online-instagram-reels-downloaders-that-will-save-your-day/"><u>[Updated] 2024 Approved 8 FREE Online Instagram Reels Downloaders That Will Save Your Day</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-pinnacle-enterprise-data-vaulting/"><u>[Updated] 2024 Approved Pinnacle Enterprise Data Vaulting</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-xiaomi-11-series-where-every-snapshot-becomes-a-masterpiece/"><u>[Updated] 2024 Approved Xiaomi 11 Series Where Every Snapshot Becomes a Masterpiece</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ensemble-dynamics-crafting-collaborative-content-for-musicians/"><u>[Updated] In 2024, Ensemble Dynamics Crafting Collaborative Content for Musicians</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-awesome-free-webcam-games-for-computer/"><u>2024 Approved Awesome Free Webcam Games for Computer</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/error-404-alert-understanding-and-fixing-page-not-found-issues-on-your-site/"><u>Error 404 Alert: Understanding and Fixing 'Page Not Found' Issues on Your Site</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fehlerbehebung-fur-das-nicht-funktionierende-startmenu-von-windows-11-entdecken-sie-diese-9-losungsmethoden/"><u>Fehlerbehebung Für Das Nicht Funktionierende Startmenü Von Windows 11 - Entdecken Sie Diese 9 Lösungsmethoden</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-google-pixel-8-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Google Pixel 8 Without PUK Codes</u></a></li>
-<li><a href="https://article-helps.techidaily.com/mellowing-sound-piece-by-piece-in-fl-for-2024/"><u>Mellowing Sound Piece-by-Piece in FL for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/quick-recover-ssd-storage-solution-revive-deleted-information-instantly/"><u>Quick-Recover SSD Storage Solution: Revive Deleted Information Instantly</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/schritt-fur-schritt-anleitung-ihre-hdd-durch-eine-ssd-ersetzen/"><u>Schritt-Für-Schritt-Anleitung: Ihre HDD Durch Eine SSD Ersetzen</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/sicherstellen-der-datensicherheit-auf-ihrem-iphone-6-strategien-fur-icloud-fotoprotektion/"><u>Sicherstellen Der Datensicherheit Auf Ihrem iPhone - 6 Strategien Für iCloud-Fotoprotektion</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-for-securely-uninstalling-windows-11-using-three-effective-techniques/"><u>Step-by-Step Guide for Securely Uninstalling Windows 11 Using Three Effective Techniques</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-20-gratkovy-videovy-converter-skvele-pro-windows-10-8-nebo-7-najdrazsi-casti-bezplat/"><u>Top 20 Grátkový Videový Converter Skvělé Pro Windows 10, 8 Nebo 7 - Najdražší Části Bezpláť</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-to-zero-data-loss-usb-duplication-for-free-top-techniques/"><u>Ultimate Guide to Zero-Data-Loss USB Duplication for Free - Top Techniques</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-tips-for-swiftly-uploading-high-resolution-4k-clips-from-your-iphone-onto-your-desktop/"><u>Ultimate Tips for Swiftly Uploading High-Resolution 4K Clips From Your iPhone Onto Your Desktop</u></a></li>
-<li><a href="https://games-able.techidaily.com/who-holds-sway-in-emulator-battle-on-raspberry-pi-batocera-or-retropie/"><u>Who Holds Sway in Emulator Battle on Raspberry Pi: Batocera or RetroPie?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-7-transfer-installing-on-a-new-pcdevice-and-action-oriented-phrases-like-step-by-step-guide-and-comprehensive-tutorial/"><u>Windows 7, Transfer, Installing on a New PC/Device, and Action-Oriented Phrases Like Step-by-Step Guide and Comprehensive Tutorial.</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-10-financially-friendly-live-streaming-apps-ios-and-android-reviewed-for-2024/"><u>[New] 10 Financially Friendly Live Streaming Apps IOS & Android Reviewed for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-vlogs-to-viral-jake-pauls-online-empire-expansion/"><u>[New] 2024 Approved From Vlogs to Viral Jake Paul’s Online Empire Expansion</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-leap-forward-in-editing-embrace-xp-movie-maker/"><u>[New] 2024 Approved Leap Forward in Editing Embrace XP Movie Maker</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728470750469-windows-11/"><u>同時多ディスクバックアップのためのWindows 11最適解法</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-honor-play-7t-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Honor Play 7T Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/methodes-faciles-pour-transferer-votre-systeme-windows-efficacement-entre-deux-ssds/"><u>Méthodes Faciles Pour Transférer Votre Système Windows Efficacement Entre Deux SSDs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-recap-of-chromakey-and-green-screen-processes/"><u>Quick Recap of Chromakey and Green Screen Processes</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/recupera-in-modo-facile-i-tuoi-file-oscuri-con-la-tua-guida-alla-risoluzione-definitiva/"><u>Recupera in Modo Facile I Tuoi File Oscuri Con La Tua Guida Alla Risoluzione Definitiva</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/sichere-kopien-gewahrleisten-methoden-zur-sicherung-ihres-wd-my-passports-auf-windows-7-8-10-and-11/"><u>Sichere Kopien Gewährleisten! Methoden Zur Sicherung Ihres WD My Passports Auf Windows 7, 8, 10 & 11</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-dichotomy-of-design-and-function-in-the-valkyrie-vind-sl125-review-anime-meets-reality/"><u>The Dichotomy of Design & Function in the Valkyrie Vind SL125 Review - Anime Meets Reality</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-evolution-of-video-from-sdr-to-the-era-of-high-dynamic-range-for-2024/"><u>The Evolution of Video From SDR to the Era of High Dynamic Range for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-3-solutions-logicielles-pour-transfert-de-donnees-vers-et-depuis-hdd-ssd-cles-usb-and-cartes-memoire/"><u>Top 3 Solutions Logicielles Pour Transfert De Données Vers Et Depuis HDD, SSD, Clés USB & Cartes Mémoire</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/wie-man-die-seagate-external-hd-auf-einem-windows-11-system-reinigt-und-optimiert/"><u>Wie Man Die Seagate External HD Auf Einem Windows 11-System Reinigt Und Optimiert</u></a></li>
 </ul></div>
 

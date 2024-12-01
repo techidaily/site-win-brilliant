@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Tutorial for Developing Custom Plugins in EmEditor
-date: 2024-11-17T22:02:06.039Z
-updated: 2024-11-22T22:12:08.002Z
+date: 2024-11-24T19:23:28.745Z
+updated: 2024-11-30T22:16:47.121Z
 tags:
   - product
 categories:
@@ -67,28 +67,28 @@ Viewing 4 posts - 1 through 4 (of 4 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-the-ultimate-examination-of-samsung-photo-editor-features/"><u>[New] The Ultimate Examination of Samsung Photo Editor Features</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-visionparts-examination-for-2024/"><u>[Updated] VisionParts Examination for 2024</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/enabling-airdrop-connectivity-across-iphones-xr-14-13-and-12-a-comprehensive-tutorial/"><u>Enabling AirDrop Connectivity Across iPhones (XR, 14, 13 & 12) - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/error-404-alert-understanding-and-fixing-page-not-found-issues-on-your-site/"><u>Error 404 Alert: Understanding and Fixing 'Page Not Found' Issues on Your Site</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fehlerbehebung-fur-das-nicht-funktionierende-startmenu-von-windows-11-entdecken-sie-diese-9-losungsmethoden/"><u>Fehlerbehebung Für Das Nicht Funktionierende Startmenü Von Windows 11 - Entdecken Sie Diese 9 Lösungsmethoden</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-innovating-communication-integrate-google-meets-in-daily-life/"><u>In 2024, Innovating Communication Integrate Google Meets in Daily Life</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 13 Pro</u></a></li>
-<li><a href="https://games-able.techidaily.com/peering-beyond-the-screen-4-tactics-for-online-status/"><u>Peering Beyond the Screen: 4 Tactics for Online Status</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/quick-recover-ssd-storage-solution-revive-deleted-information-instantly/"><u>Quick-Recover SSD Storage Solution: Revive Deleted Information Instantly</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/schritt-fur-schritt-anleitung-ihre-hdd-durch-eine-ssd-ersetzen/"><u>Schritt-Für-Schritt-Anleitung: Ihre HDD Durch Eine SSD Ersetzen</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/sicherstellen-der-datensicherheit-auf-ihrem-iphone-6-strategien-fur-icloud-fotoprotektion/"><u>Sicherstellen Der Datensicherheit Auf Ihrem iPhone - 6 Strategien Für iCloud-Fotoprotektion</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-for-securely-uninstalling-windows-11-using-three-effective-techniques/"><u>Step-by-Step Guide for Securely Uninstalling Windows 11 Using Three Effective Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-assembling-people-through-fb-groups/"><u>The Art of Assembling People Through FB Groups</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-comprehensive-affinity-guide-banishing-backgrounds-with-ease/"><u>The Comprehensive Affinity Guide Banishing Backgrounds with Ease</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-to-zero-data-loss-usb-duplication-for-free-top-techniques/"><u>Ultimate Guide to Zero-Data-Loss USB Duplication for Free - Top Techniques</u></a></li>
-<li><a href="https://win-guides.techidaily.com/ultimate-guide-how-to-safely-duplicate-an-sd-card-using-free-tools-in-windows/"><u>Ultimate Guide: How to Safely Duplicate an SD Card Using Free Tools in Windows</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-tips-for-swiftly-uploading-high-resolution-4k-clips-from-your-iphone-onto-your-desktop/"><u>Ultimate Tips for Swiftly Uploading High-Resolution 4K Clips From Your iPhone Onto Your Desktop</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-7-transfer-installing-on-a-new-pcdevice-and-action-oriented-phrases-like-step-by-step-guide-and-comprehensive-tutorial/"><u>Windows 7, Transfer, Installing on a New PC/Device, and Action-Oriented Phrases Like Step-by-Step Guide and Comprehensive Tutorial.</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/winning-at-gaming-memory-capture-essentials-on-windows-10-for-2024/"><u>Winning at Gaming Memory Capture Essentials on Windows 10 for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-direct-download-of-youtube-videos/"><u>[New] 2024 Approved Direct Download of YouTube Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-avoid-the-fake-out-maintaining-authenticity-in-likes/"><u>[Updated] 2024 Approved Avoid the Fake-Out Maintaining Authenticity in Likes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-podcastpathfinder-charting-new-courses/"><u>[Updated] 2024 Approved PodcastPathfinder Charting New Courses</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-exploring-new-horizons-a-guide-to-top-6-nft-innovators/"><u>[Updated] Exploring New Horizons A Guide to Top 6 NFT Innovators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-next-evaluation-diverse-solutions-for-2024/"><u>[Updated] Next Evaluation Diverse Solutions for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-optimal-mobile-photography-and-videography-on-ios-and-android/"><u>[Updated] Optimal Mobile Photography and Videography on iOS & Android</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/complete-step-by-step-tutorial-safeguarding-your-iphone-with-ios-1navigate-protecting-and-recovering-data-on-macpc/"><u>Complete Step-by-Step Tutorial: Safeguarding Your iPhone with iOS 1Navigate | Protecting and Recovering Data on Mac/PC</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/curious-about-why-your-iphone-continuously-snaps-copies-of-images-discover-effective-ways-to-halt-duplication/"><u>Curious About Why Your iPhone Continuously Snaps Copies of Images? Discover Effective Ways to Halt Duplication!</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-samsung-galaxy-a15-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Samsung Galaxy A15 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/download-premium-facebook-hd-content-anywhere-for-2024/"><u>Download Premium Facebook HD Content Anywhere for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/efficiently-mass-deploy-windows-7-across-several-pcs-using-a-single-imaged-setup/"><u>Efficiently Mass-Deploy Windows 7 Across Several PCs Using a Single Imaged Setup</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guia-definitiva-para-guardar-la-imagen-de-su-pantalla-en-windows-1011-el-software-libre-mas-eficiente-que-existe/"><u>Guía Definitiva Para Guardar La Imagen De Su Pantalla en Windows 10/11: El Software Libre Más Eficiente Que Existe</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-nokia-c12-plus-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Nokia C12 Plus</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/lost-partition-recovery-in-windows-1011-a-4-step-guide-to-restoring-your-data/"><u>Lost Partition Recovery in Windows 10/11: A 4-Step Guide to Restoring Your Data</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/steps-to-recover-removed-tweets-and-videos-on-twitter/"><u>Steps to Recover Removed Tweets and Videos on Twitter</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/steps-to-restore-unintentionally-removed-data-when-relocating-files/"><u>Steps to Restore Unintentionally Removed Data When Relocating Files</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211192922-9780811742160-the-big-book-of-virginia-ghost-stories/"><u>The Big Book of Virginia Ghost Stories | Free Book</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vrouwtje-snelle-toegang-van-window-11-file-explorer-herstellen/"><u>Vrouwtje Snelle Toegang Van Window 11 File Explorer Herstellen</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-0/"><u>Windows 11 バックアップサイズが0バイトの問題を解消した！</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
