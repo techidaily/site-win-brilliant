@@ -1,7 +1,7 @@
 ---
 title: Download the Latest LYRX Mac Karaoke Software (v1.3.0.1) for Enhanced Singing Fun!
-date: 2024-11-26T08:41:07.842Z
-updated: 2024-11-30T16:23:28.062Z
+date: 2024-12-07T04:47:34.468Z
+updated: 2024-12-09T03:08:24.405Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ _**Note:** Another update is scheduled soon for LYRX that includes new features.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.3.0.1
@@ -41,7 +41,7 @@ _**Note:** Another update is scheduled soon for LYRX that includes new features.
 _Have questions about the latest 1.3.0.1 version of our **karaoke software for MAC**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -63,22 +63,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/11/lyrx-update-v1301.jpg?fit=
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-uncover-recent-facebook-watched-content-swiftly/"><u>[New] 2024 Approved Uncover Recent Facebook Watched Content Swiftly</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-zoominnovatex7-advanced-imagery-enlargement/"><u>[Updated] In 2024, ZoomInnovateX7 Advanced Imagery Enlargement</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-infinix-note-30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-social-media-marketing-elevating-public-health-dialogue/"><u>2024 Approved Social Media Marketing Elevating Public Health Dialogue</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/3-effective-techniques-for-recovering-lost-images-from-memory-cards/"><u>3 Effective Techniques for Recovering Lost Images From Memory Cards</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/7-sans-tracas/"><u>7 Sans Tracas</u></a></li>
-<li><a href="https://win-web.techidaily.com/come-effettuare-la-cancellazione-sicura-del-disco-fisso-tramite-il-bios/"><u>Come Effettuare La Cancellazione Sicura Del Disco Fisso Tramite Il BIOS</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comment-recuperer-avec-succes-le-contenu-dune-corbeille-videe-sur-votre-messagerie/"><u>Comment Récupérer Avec Succès Le Contenu D'une Corbeille Vidée Sur Votre Messagerie?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/error-webpage-unavailable-resolving-the-page-cannot-be-displayed-issue/"><u>Error: Webpage Unavailable – Resolving the 'Page Cannot Be Displayed' Issue</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/galaxy-of-sql-recovery-strategies/"><u>Galaxy of SQL Recovery Strategies</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/guide-upgrading-or-replacing-your-ssd-with-a-windows-11-setup-using-two-effective-techniques/"><u>Guide: Upgrading or Replacing Your SSD with a Windows 11 Setup Using Two Effective Techniques</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/how-to-completely-remove-and-deactivate-onedrive-on-your-windows-11-pc/"><u>How to Completely Remove and Deactivate OneDrive on Your Windows 11 PC</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Lava Storm 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/i-tre-codici-pecchiatori-ottimizzati-gratis-per-dispositivi-ssd-in-sistema-operativo-windows/"><u>I Tre Codici Pecchiatori Ottimizzati Gratis per Dispositivi SSD in Sistema Operativo Windows</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/top-rated-free-hard-drive-clone-tools-for-windows-11-and-10-get-your-perfect-match-today/"><u>Top Rated Free Hard Drive Clone Tools for Windows 11 and 10: Get Your Perfect Match Today!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-value-panoramic-recording-equipment-for-savvy-shoppers/"><u>Top Value Panoramic Recording Equipment for Savvy Shoppers</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728490751379-hddssd/"><u>データ保護を確実にしつつHDDとSSD間で完全なミラーリング法</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-best-free-online-photo-tools-ranked-15/"><u>[New] 2024 Approved Best Free Online Photo Tools Ranked #15</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-reviewing-vlc-as-a-multimedia-recorder/"><u>[Updated] 2024 Approved Reviewing VLC as a Multimedia Recorder</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-advanced-recording-in-windows-a-beginners-guide-for-2024/"><u>[Updated] Advanced Recording in Windows A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-revolutionizing-note-taking-the-power-of-mematic-for-2024/"><u>[Updated] Revolutionizing Note-Taking The Power of Mematic for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-from-apple-iphone-13-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons From Apple iPhone 13? Find the Best Solution Here</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-boost-your-pcs-performance-with-gpu-overclocking-on-windows-explained-by-yl-computing/"><u>Can You Boost Your PC's Performance with GPU Overclocking on Windows - Explained by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/checking-your-pcs-hardware-and-os-is-your-network-adapter-compatible/"><u>Checking Your PC's Hardware and OS: Is Your Network Adapter Compatible?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/dj-revolution-try-out-dex-316s-latest-online-songbook-upgrade/"><u>DJ Revolution: Try Out DEX 3.16'S Latest Online Songbook Upgrade!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/effective-strategies-for-fixing-setup-errors-with-yl-software-solutions/"><u>Effective Strategies for Fixing Setup Errors with YL Software Solutions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/explore-these-7-complimentary-online-fax-service-options/"><u>Explore These 7 Complimentary Online Fax Service Options</u></a></li>
+<li><a href="https://win-best.techidaily.com/gratuit-gebaseerd-afconvertere-avi-files-naar-m4v-onlinemovavi/"><u>Gratuit Gebaseerd Afconvertere AVI-Files Naar M4V - Onlinemovavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-accelerate-your-pc-with-proven-diagnostic-tools-and-troubleshooting-strategies-guided-by-expertise-at-yl-software/"><u>How to Accelerate Your PC with Proven Diagnostic Tools and Troubleshooting Strategies - Guided by Expertise at YL Software</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/introducing-the-latest-karaoke-innovation-by-digitrax-the-pro-cloud-edition-from-pcdj/"><u>Introducing the Latest Karaoke Innovation by Digitrax - The Pro Cloud Edition From PCDJ</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/popular-beats-of-15-discover-the-most-requested-songs-for-party-djs/"><u>Popular Beats of '15: Discover the Most-Requested Songs for Party DJs!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamlining-creation-youtube-video-editor-insights-for-2024/"><u>Streamlining Creation YouTube Video Editor Insights for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unveiling-graphics-card-specifications-with-yls-expert-advice/"><u>Unveiling Graphics Card Specifications with YL's Expert Advice</u></a></li>
 </ul></div>
 

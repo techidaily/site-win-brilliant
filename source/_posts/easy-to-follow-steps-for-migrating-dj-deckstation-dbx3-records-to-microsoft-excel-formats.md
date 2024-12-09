@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2024-11-26T18:52:39.224Z
-updated: 2024-12-01T06:05:26.739Z
+date: 2024-12-03T05:47:19.543Z
+updated: 2024-12-09T11:21:38.205Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,18 +46,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-boost-your-gaming-presence-with-these-top-14-video-ideas-for-2024/"><u>[New] Boost Your Gaming Presence with These Top 14 Video Ideas for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-primeplay-videoapp-inspection-for-2024/"><u>[New] PrimePlay VideoApp Inspection for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-step-towards-stunning-visuals-using-video-enhancer-22/"><u>[New] Step Towards Stunning Visuals - Using Video Enhancer 2.2</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-techniques-for-silent-film-capturing/"><u>[Updated] 2024 Approved Top Techniques for Silent Film Capturing</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-shotsizesavvy-fine-tuning-your-social-media-content-for-instagram/"><u>[Updated] ShotSizeSavvy Fine-Tuning Your Social Media Content for Instagram</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-techniques-for-gh-video-logging/"><u>[Updated] Techniques for GH Video Logging</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/beginners-manual-mastering-vmware-powercli-essentials-and-getting-started/"><u>Beginner's Manual: Mastering VMware PowerCLI Essentials and Getting Started</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/error-404-the-pages-youre-looking-for-cannot-be-displayed/"><u>Error 404: The Pages You're Looking For Cannot Be Displayed</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/schnelle-losung-fur-raw-anzeige-auf-externer-wd-festplatte-wiederherstellungsmethode-erfolgreich/"><u>Schnelle Lösung Für 'RAW'-Anzeige Auf Externer WD Festplatte: Wiederherstellungsmethode Erfolgreich</u></a></li>
-<li><a href="https://win-tips.techidaily.com/smartphone-compatible-video-transformer-effortless-mobile-video-format-conversion/"><u>Smartphone Compatible Video Transformer: Effortless Mobile Video Format Conversion</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/the-ultimate-list-of-top-raid-data-recovery-programs-ranked/"><u>The Ultimate List of Top RAID Data Recovery Programs Ranked</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-realme-c67-4g-by-fonelab-android-recover-music/"><u>The way to get back lost music from Realme C67 4G</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/raf-png/"><u>무료 RAF PNG 이미지를 원각할 수 있는 방법 - 온라인 가이드</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-voice-record-hacks-3-ways-to-get-it-right-on-ipad/"><u>[New] 2024 Approved Voice Record Hacks 3 Ways to Get It Right on iPad</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-refining-video-aesthetics-for-impeccable-instagram-presence/"><u>[Updated] In 2024, Refining Video Aesthetics for Impeccable Instagram Presence</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-idea-incubator-interactive/"><u>[Updated] Innovative Idea Incubator Interactive</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-medieval-armor-wallpapers-and-visuals-download-high-quality-vintage-designs-by-yl-creations/"><u>1. Medieval Armor Wallpapers & Visuals: Download High-Quality Vintage Designs by YL Creations</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-tips-for-effective-youtube-end-screen-usage/"><u>2024 Approved Tips for Effective YouTube End Screen Usage</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/adjusting-languages-within-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Adjusting Languages Within Control Panel: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/beat-crafting-enthusiasts-rejoice-discover-the-latest-red-mobile-v35-preview-and-new-skins-pcdj/"><u>Beat-Crafting Enthusiasts Rejoice: Discover the Latest RED Mobile v3.5 Preview & New Skins | PCDJ</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expert-tips-for-disabling-microsofts-built-in-protection-in-windows-11-yl-software-solutions/"><u>Expert Tips for Disabling Microsoft's Built-In Protection in Windows 11 - YL Software Solutions</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/free-flat-transfer-program-seamless-conversion-between-flv-videos-and-other-formats/"><u>Free Flat Transfer Program: Seamless Conversion Between FLV Videos & Other Formats</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/hd-tiktok-wallpaper-downloads-high-quality-imagery-by-yl-computing/"><u>HD TikTok Wallpaper Downloads - High-Quality Imagery by YL Computing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-google-pixel-7a-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Google Pixel 7a Phone that is Locked?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/repairing-a-damaged-windows-registry-expert-tips-from-yl-computing/"><u>Repairing a Damaged Windows Registry: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ultimate-collection-of-warhammer-40k-cosmic-horror-chaos-themed-hd-wallpapers-high-quality-imagery-for-gamers/"><u>Ultimate Collection of Warhammer 40K Cosmic Horror Chaos Themed HD Wallpapers - High-Quality Imagery for Gamers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/ultimate-screensnapper-for-privacy-conscious-users-for-2024/"><u>Ultimate ScreenSnapper for Privacy Conscious Users for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unraveling-lethargic-links-how-yl-software-solves-slow-connection-dilemmas/"><u>Unraveling Lethargic Links: How YL Software Solves Slow Connection Dilemmas</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-the-elite-lineup-of-2024-expertly-vetted-and-assessed-ipad-pro-cases-zdnet-insights/"><u>Unveiling the Elite Lineup of 2024: Expertly Vetted & Assessed iPad Pro Cases | ZDNET Insights</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2210681-9780007438037-your-personal-horoscope-2012-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2012: Month-by-month forecasts for every sign | Free Book</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Tutorial for Developing Custom Plugins in EmEditor
-date: 2024-11-24T19:23:28.745Z
-updated: 2024-11-30T22:16:47.121Z
+date: 2024-12-05T18:08:41.852Z
+updated: 2024-12-09T09:53:54.037Z
 tags:
   - product
 categories:
@@ -67,28 +67,23 @@ Viewing 4 posts - 1 through 4 (of 4 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-direct-download-of-youtube-videos/"><u>[New] 2024 Approved Direct Download of YouTube Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-avoid-the-fake-out-maintaining-authenticity-in-likes/"><u>[Updated] 2024 Approved Avoid the Fake-Out Maintaining Authenticity in Likes</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-podcastpathfinder-charting-new-courses/"><u>[Updated] 2024 Approved PodcastPathfinder Charting New Courses</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-exploring-new-horizons-a-guide-to-top-6-nft-innovators/"><u>[Updated] Exploring New Horizons A Guide to Top 6 NFT Innovators</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-next-evaluation-diverse-solutions-for-2024/"><u>[Updated] Next Evaluation Diverse Solutions for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-optimal-mobile-photography-and-videography-on-ios-and-android/"><u>[Updated] Optimal Mobile Photography and Videography on iOS & Android</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/complete-step-by-step-tutorial-safeguarding-your-iphone-with-ios-1navigate-protecting-and-recovering-data-on-macpc/"><u>Complete Step-by-Step Tutorial: Safeguarding Your iPhone with iOS 1Navigate | Protecting and Recovering Data on Mac/PC</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/curious-about-why-your-iphone-continuously-snaps-copies-of-images-discover-effective-ways-to-halt-duplication/"><u>Curious About Why Your iPhone Continuously Snaps Copies of Images? Discover Effective Ways to Halt Duplication!</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-samsung-galaxy-a15-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Samsung Galaxy A15 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/download-premium-facebook-hd-content-anywhere-for-2024/"><u>Download Premium Facebook HD Content Anywhere for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/efficiently-mass-deploy-windows-7-across-several-pcs-using-a-single-imaged-setup/"><u>Efficiently Mass-Deploy Windows 7 Across Several PCs Using a Single Imaged Setup</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/guia-definitiva-para-guardar-la-imagen-de-su-pantalla-en-windows-1011-el-software-libre-mas-eficiente-que-existe/"><u>Guía Definitiva Para Guardar La Imagen De Su Pantalla en Windows 10/11: El Software Libre Más Eficiente Que Existe</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-nokia-c12-plus-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Nokia C12 Plus</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/lost-partition-recovery-in-windows-1011-a-4-step-guide-to-restoring-your-data/"><u>Lost Partition Recovery in Windows 10/11: A 4-Step Guide to Restoring Your Data</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/steps-to-recover-removed-tweets-and-videos-on-twitter/"><u>Steps to Recover Removed Tweets and Videos on Twitter</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/steps-to-restore-unintentionally-removed-data-when-relocating-files/"><u>Steps to Restore Unintentionally Removed Data When Relocating Files</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211192922-9780811742160-the-big-book-of-virginia-ghost-stories/"><u>The Big Book of Virginia Ghost Stories | Free Book</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/vrouwtje-snelle-toegang-van-window-11-file-explorer-herstellen/"><u>Vrouwtje Snelle Toegang Van Window 11 File Explorer Herstellen</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-11-0/"><u>Windows 11 バックアップサイズが0バイトの問題を解消した！</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-comprehensive-breakdown-exploring-lgs-widescreen-uhd-display/"><u>[New] Comprehensive Breakdown Exploring LG's Widescreen UHD Display</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-gateway-to-grandeur-embarking-on-a-classic-lit-journey-for-2024/"><u>[New] Gateway to Grandeur Embarking on a Classic Lit Journey for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/activating-microsofts-built-in-antivirus-tips-from-yl-software-experts/"><u>Activating Microsoft's Built-In Antivirus: Tips From YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/advanced-windows-djing-mastering-the-art-of-wasapi-over-directsoundasio-for-optimal-audio-performance/"><u>Advanced Windows DJing: Mastering the Art of WASAPI Over DirectSound/ASIO for Optimal Audio Performance</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oppo-k11-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo K11 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expert-advice-easily-refresh-your-pcs-hardware-support-with-yl-software/"><u>Expert Advice: Easily Refresh Your PC's Hardware Support with YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/fix-your-windows-issues-with-ease-understanding-and-correcting-error-codes-expert-advice-from-yl-systems/"><u>Fix Your Windows Issues with Ease: Understanding and Correcting Error Codes - Expert Advice From YL Systems</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-playbook-for-podcast-titling-success-and-50plus-name-suggestions/"><u>In 2024, The Ultimate Playbook for Podcast Titling Success & 50+ Name Suggestions</u></a></li>
+<li><a href="https://win11.techidaily.com/restoring-the-functionality-of-secure-boot-after-disabling-in-windows-bios/"><u>Restoring the Functionality of Secure Boot After Disabling in Windows BIOS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-infinix-zero-30-5g-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Infinix Zero 30 5G Device</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-streaming-webcams-comprehensive-tests-and-reviews-by-tech-experts-digital-trends/"><u>Top Rated Streaming Webcams : Comprehensive Tests & Reviews by Tech Experts | Digital Trends</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-ram-issues-on-windows-machines-with-tips-from-yl-software-experts/"><u>Troubleshooting RAM Issues on Windows Machines with Tips From YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unveiling-the-role-how-do-system-properties-serve-within-the-windows-control-panel-insights-from-yl-technologies/"><u>Unveiling the Role: How Do System Properties Serve Within the Windows Control Panel? – Insights From YL Technologies</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

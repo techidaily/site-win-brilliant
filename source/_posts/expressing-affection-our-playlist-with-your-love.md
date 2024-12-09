@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2024-11-27T03:12:16.527Z
-updated: 2024-12-01T03:29:02.445Z
+date: 2024-12-06T06:00:17.137Z
+updated: 2024-12-09T08:34:17.946Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,18 +60,15 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-decoding-the-mystery-of-smooth-iphone-images-four-ways/"><u>[New] 2024 Approved Decoding the Mystery of Smooth iPhone Images (Four Ways)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-social-snapshot-saver-tool/"><u>[Updated] In 2024, Social Snapshot Saver Tool</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-system/"><u>1 System</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-convincing-movie-markers/"><u>2024 Approved Crafting Convincing Movie Markers</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-the-art-of-modern-360-camera-purchases-2enas/"><u>2024 Approved Mastering the Art of Modern 360 Camera Purchases (2Enas)</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728487674371-aomei-fonebackup-ios/"><u>使用 AOMEI FoneBackup 轻松移动数据保存技巧：iOS设备的完整指导</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/expert-picks-top-1-cookie-cutter-list-of-10-apps-for-basketball-and-rugby-streaming-for-2024/"><u>Expert Picks Top 1 Cookie Cutter List of 10 Apps for Basketball and Rugby Streaming for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/financial-motives-in-consumer-video-evaluations/"><u>Financial Motives in Consumer Video Evaluations?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-vivo-x-fold-2-by-drfone-android/"><u>How to Bypass FRP on Vivo X Fold 2?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-ultimate-guide-to-persuasive-proposal-drafting-with-chatgpt-assistance/"><u>The Ultimate Guide to Persuasive Proposal Drafting with ChatGPT Assistance</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/transfert-dun-systeme-hdd-a-ssd-avec-commentcloner-pour-windows-7810/"><u>Transfert D'un Système HDD À SSD Avec CommentCloner Pour Windows 7/8/10</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-efficiently-moving-data-onto-an-external-hdd-on-windows-10/"><u>Ultimate Guide: Efficiently Moving Data Onto an External HDD on Windows 10</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-elite-file-sender-mp4-to-social/"><u>[New] In 2024, Elite File Sender MP4 to Social</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-maximize-your-content-with-these-top-5-obs-tips/"><u>[Updated] 2024 Approved Maximize Your Content with These Top 5 OBS Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/sing-channel-overview-teaser-clips-for-2024/"><u>Composing Channel Overview Teaser Clips for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-google-maps-app-on-ios-devices/"><u>Comprehensive Evaluation of Google Maps App on iOS Devices</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-e46-m3-gtr-desktop-backgrounds-and-walls-premium-visual-content-by-yl-computing/"><u>High-Definition BMW E46 M3 GTR Desktop Backgrounds and Walls: Premium Visual Content by YL Computing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-x50-gt-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor X50 GT Device</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/jumpstart-your-pc-experience-mastering-windows-11s-search-tool/"><u>Jumpstart Your PC Experience: Mastering Windows 11’S Search Tool</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-program-failed-to-launch-issues-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Resolving 'Program Failed to Launch' Issues on Windows: A Comprehensive Guide - By YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-automatic-computer-backups-via-windows-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Setting Up Automatic Computer Backups via Windows Control Panel - A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-windows-control-panel-a-guide-to-network-and-internet-settings-yl-software-solutions/"><u>Understanding Windows Control Panel: A Guide to Network & Internet Settings - YL Software Solutions</u></a></li>
 </ul></div>
 

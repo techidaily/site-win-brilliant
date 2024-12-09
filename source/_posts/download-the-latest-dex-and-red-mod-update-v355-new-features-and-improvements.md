@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements
-date: 2024-11-29T08:00:07.196Z
-updated: 2024-12-01T04:05:07.626Z
+date: 2024-12-06T16:53:01.093Z
+updated: 2024-12-08T18:51:58.195Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### All Changes Included In 3.5.5
@@ -50,7 +50,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 Existing DEX 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/) — Existing RED Mobile 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,20 +72,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/djsoftware355updates-cover
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-essential-selection-the-greatest-free-editing-software/"><u>[New] 2024 Approved Essential Selection The Greatest Free Editing Software</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-premium-listing-high-performing-15-camcorders/"><u>[New] 2024 Approved Premium Listing High-Performing 15 Camcorders</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-avoiding-strikes-youtube-edition/"><u>[Updated] In 2024, Avoiding Strikes YouTube Edition</u></a></li>
-<li><a href="https://os-tips.techidaily.com/automatic-transcription-feature-now-available-in-apples-latest-podcast-update/"><u>Automatic Transcription Feature Now Available in Apple's Latest Podcast Update</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/curious-about-why-your-iphone-continuously-snaps-copies-of-images-discover-effective-ways-to-halt-duplication/"><u>Curious About Why Your iPhone Continuously Snaps Copies of Images? Discover Effective Ways to Halt Duplication!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/efficiently-mass-deploy-windows-7-across-several-pcs-using-a-single-imaged-setup/"><u>Efficiently Mass-Deploy Windows 7 Across Several PCs Using a Single Imaged Setup</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/enhance-email-management-with-gmails-powerful-alias-and-filter-features/"><u>Enhance Email Management with Gmail's Powerful Alias and Filter Features</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/guia-definitiva-para-guardar-la-imagen-de-su-pantalla-en-windows-1011-el-software-libre-mas-eficiente-que-existe/"><u>Guía Definitiva Para Guardar La Imagen De Su Pantalla en Windows 10/11: El Software Libre Más Eficiente Que Existe</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-music-after-poco-x5-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Poco X5 has been deleted</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/secure-your-sound-3-safe-methods-of-audio-from-youtube-for-2024/"><u>Secure Your Sound 3 Safe Methods of Audio From YouTube for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-tutorial-on-rescuing-your-cr2-images-from-compromised-sd-media/"><u>Step-by-Step Tutorial on Rescuing Your CR2 Images From Compromised SD Media</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/steps-to-restore-unintentionally-removed-data-when-relocating-files/"><u>Steps to Restore Unintentionally Removed Data When Relocating Files</u></a></li>
-<li><a href="https://howto.techidaily.com/vivo-y17s-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y17s Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-11-0/"><u>Windows 11 バックアップサイズが0バイトの問題を解消した！</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-vr-player-guide-unveiling-the-best-pc-streamers/"><u>[New] The Ultimate VR Player Guide Unveiling the Best PC Streamers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-how-to-record-television-shows-on-pc-free-software-insights-for-2024/"><u>[Updated] How to Record Television Shows on PC Free Software Insights for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-laptop-and-web-navigating-live-video-communication-in-whatsapp/"><u>2024 Approved Laptop & Web Navigating Live Video Communication in WhatsApp</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-solutions-for-common-windows-programming-errors-guidance-by-yl-software-experts/"><u>Easy Solutions for Common Windows Programming Errors - Guidance by YL Software Experts</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/ensuring-optimal-ram-operation-on-your-desktop-or-laptop-expert-advice-from-coretech-solutions/"><u>Ensuring Optimal RAM Operation on Your Desktop or Laptop: Expert Advice From CoreTech Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/from-amateurs-to-pros-mastering-mac-audio-in-audacity/"><u>From Amateurs to Pros Mastering Mac Audio in Audacity</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-vivo-y02t-by-fonelab-android-recover-music/"><u>How to recover old music from your Vivo Y02T</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-strategies-for-prominent-personalities-on-snapchat/"><u>In 2024, Strategies for Prominent Personalities on Snapchat</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/jin-yuuichis-stunning-backdrops-and-digital-art-premium-wallpaper-collection-by-yl-computing/"><u>Jin Yuuichis Stunning Backdrops & Digital Art: Premium Wallpaper Collection by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/navigating-graphics-glitches-a-comprehensive-guide-to-fix-display-problems-yl-software-experts/"><u>Navigating Graphics Glitches: A Comprehensive Guide to Fix Display Problems - YL Software Experts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/powering-up-streamlined-settings-adjustments-in-window-11/"><u>Powering Up: Streamlined Settings Adjustments in Window 11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/premier-pick-top-6-classic-mario-gaming-experiences-for-pc-gamers/"><u>Premier Pick: Top 6 Classic Mario Gaming Experiences for PC Gamers</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/signs-of-failure-in-your-gpu-tips-by-yl-software-experts/"><u>Signs of Failure in Your GPU: Tips by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-unresponsive-scanner-issues-a-step-by-step-guide-from-yl-computing/"><u>Solving Unresponsive Scanner Issues: A Step-by-Step Guide From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unveiling-dex-31002-update-explore-new-features-with-pcdj-dj-software/"><u>Unveiling DEX 3.10.0.2 Update: Explore New Features with PCDJ DJ Software!</u></a></li>
 </ul></div>
 
