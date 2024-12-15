@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2024-12-03T05:47:19.543Z
-updated: 2024-12-09T11:21:38.205Z
+date: 2024-12-10T02:47:20.533Z
+updated: 2024-12-15T09:49:22.275Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,22 +46,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-voice-record-hacks-3-ways-to-get-it-right-on-ipad/"><u>[New] 2024 Approved Voice Record Hacks 3 Ways to Get It Right on iPad</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-refining-video-aesthetics-for-impeccable-instagram-presence/"><u>[Updated] In 2024, Refining Video Aesthetics for Impeccable Instagram Presence</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-idea-incubator-interactive/"><u>[Updated] Innovative Idea Incubator Interactive</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-medieval-armor-wallpapers-and-visuals-download-high-quality-vintage-designs-by-yl-creations/"><u>1. Medieval Armor Wallpapers & Visuals: Download High-Quality Vintage Designs by YL Creations</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-tips-for-effective-youtube-end-screen-usage/"><u>2024 Approved Tips for Effective YouTube End Screen Usage</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/adjusting-languages-within-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Adjusting Languages Within Control Panel: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/beat-crafting-enthusiasts-rejoice-discover-the-latest-red-mobile-v35-preview-and-new-skins-pcdj/"><u>Beat-Crafting Enthusiasts Rejoice: Discover the Latest RED Mobile v3.5 Preview & New Skins | PCDJ</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expert-tips-for-disabling-microsofts-built-in-protection-in-windows-11-yl-software-solutions/"><u>Expert Tips for Disabling Microsoft's Built-In Protection in Windows 11 - YL Software Solutions</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/free-flat-transfer-program-seamless-conversion-between-flv-videos-and-other-formats/"><u>Free Flat Transfer Program: Seamless Conversion Between FLV Videos & Other Formats</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/hd-tiktok-wallpaper-downloads-high-quality-imagery-by-yl-computing/"><u>HD TikTok Wallpaper Downloads - High-Quality Imagery by YL Computing</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-google-pixel-7a-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Google Pixel 7a Phone that is Locked?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/repairing-a-damaged-windows-registry-expert-tips-from-yl-computing/"><u>Repairing a Damaged Windows Registry: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-collection-of-warhammer-40k-cosmic-horror-chaos-themed-hd-wallpapers-high-quality-imagery-for-gamers/"><u>Ultimate Collection of Warhammer 40K Cosmic Horror Chaos Themed HD Wallpapers - High-Quality Imagery for Gamers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/ultimate-screensnapper-for-privacy-conscious-users-for-2024/"><u>Ultimate ScreenSnapper for Privacy Conscious Users for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unraveling-lethargic-links-how-yl-software-solves-slow-connection-dilemmas/"><u>Unraveling Lethargic Links: How YL Software Solves Slow Connection Dilemmas</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unveiling-the-elite-lineup-of-2024-expertly-vetted-and-assessed-ipad-pro-cases-zdnet-insights/"><u>Unveiling the Elite Lineup of 2024: Expertly Vetted & Assessed iPad Pro Cases | ZDNET Insights</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2210681-9780007438037-your-personal-horoscope-2012-month-by-month-forecasts-for-every-sign/"><u>Your Personal Horoscope 2012: Month-by-month forecasts for every sign | Free Book</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-inside-youtube-master-one-frame-no-money-spent/"><u>[Updated] Step Inside YouTube Master One Frame, No Money Spent</u></a></li>
+<li><a href="https://win-studio.techidaily.com/1-flipchm-pro-advanced-conversion-tool-from-3d-chm-files-to-interactive-ebooks-flipbuildercom/"><u>1. FlipCHM Pro: Advanced Conversion Tool From 3D CHM Files to Interactive eBooks - FlipBuilder.com</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-kinemaster-android-an-in-depth-gaming-guide-review/"><u>2024 Approved KineMaster Android An In-Depth Gaming Guide Review</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/buzz-free-audio-expert-advice-on-eliminating-buzz-in-sound-cards-insights-from-yl-software/"><u>Buzz-Free Audio: Expert Advice on Eliminating Buzz in Sound Cards, Insights From YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/identifying-active-background-applications-on-windows-11-a-guide-by-yl-computing-and-yl-software/"><u>Identifying Active Background Applications on Windows 11: A Guide by YL Computing & YL Software</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/keep-cool-while-you-work-advanced-techniques-for-overcoming-laptop-heat-issues-guided-by-yl-software-experts/"><u>Keep Cool While You Work: Advanced Techniques for Overcoming Laptop Heat Issues - Guided by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/master-the-marketplace-your-essential-tutorial-on-acquiring-cryptocurrencies-with-yl-computing-insights/"><u>Master the Marketplace: Your Essential Tutorial on Acquiring Cryptocurrencies with YL Computing Insights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-and-interpreting-twitter-archives-for-2024/"><u>Navigating and Interpreting Twitter Archives for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/steven-universe-wallpaper-collection-by-yl-software-stunning-backdrops-and-vibrant-designs/"><u>Steven Universe Wallpaper Collection by YL Software – Stunning Backdrops & Vibrant Designs</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-audio-issues-how-a-faulty-sound-card-could-be-the-culprit-tips-by-yl-software-experts/"><u>Troubleshooting Audio Issues: How a Faulty Sound Card Could Be the Culprit - Tips by YL Software Experts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-the-benefits-of-apple-pay-a-comprehensive-walkthrough-for-shoppers-and-e-commerce-platforms-insights/"><u>Unlock the Benefits of Apple Pay: A Comprehensive Walkthrough for Shoppers and E-Commerce Platforms Insights</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlocking-the-mysteries-of-connections-todays-new-york-times-crossword-insight-and-solution-may-26th-edition/"><u>Unlocking the Mysteries of 'Connections': Today’s New York Times Crossword Insight & Solution - May 26Th Edition</u></a></li>
 </ul></div>
 

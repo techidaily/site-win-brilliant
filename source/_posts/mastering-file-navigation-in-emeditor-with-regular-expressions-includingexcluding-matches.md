@@ -1,7 +1,7 @@
 ---
 title: "Mastering File Navigation in EmEditor with Regular Expressions: Including/Excluding Matches"
-date: 2024-11-29T22:57:35.162Z
-updated: 2024-12-01T04:19:08.636Z
+date: 2024-12-13T10:31:18.807Z
+updated: 2024-12-14T19:43:05.620Z
 tags:
   - product
 categories:
@@ -82,18 +82,21 @@ Viewing 6 posts - 1 through 6 (of 6 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-brilliant.techidaily.com/guide-complet-restaurer-les-informations-dun-ordinateur-avec-windows-endommage/"><u>« Guide Complet: Restaurer Les Informations D'un Ordinateur Avec Windows Endommagé »</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-asmr-app-selection-guide-for-phones/"><u>[New] 2024 Approved ASMR App Selection Guide for Phones</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/5oco6bq86kej5rg65zug5qqu5qgi5rai5asx6icm5byv6lw355qe56gs56kf5yig5ymy5y2a5y2x5qmf77yf/"><u>怎麼解決因檔案消失而引起的硬碟分割區危機？</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expert-tips-for-bulk-file-migration-effortless-techniques-to-relocate-your-documents-to-an-exterior-storage-device/"><u>Expert Tips for Bulk File Migration: Effortless Techniques to Relocate Your Documents to an Exterior Storage Device</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-recover-windows-server-snapshots-on-vmware-and-hyper-v-a-comprehensive-guide/"><u>How to Recover Windows Server Snapshots on VMware and Hyper-V - A Comprehensive Guide</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-mini-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/meet-the-future-with-oneplus-10t-ultra-fast-charging-capability-and-cutting-edge-android-12-system/"><u>Meet the Future with OnePlus 10T - Ultra-Fast Charging Capability and Cutting-Edge Android 12 System</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/merge-moments-seamlessly-from-tiktok-to-facebook-for-2024/"><u>Merge Moments Seamlessly From TikTok, To Facebook for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/reinventing-tech-windows-leap-from-version-11/"><u>Reinventing Tech: Windows' Leap From Version 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-superb-simple-countdown-apps-for-free-for-2024/"><u>[New] Superb Simple Countdown Apps for Free for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-a-complete-overview-of-polarr-photo-editor-for-2024/"><u>[Updated] A Complete Overview of Polarr Photo Editor for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-change-youtube-playback-speed-to-speed-up-or-slow-down-video/"><u>[Updated] How to Change YouTube Playback Speed to Speed Up or Slow Down Video</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-audio-experts-choice-best-6-microphone-picks-for-online-broadcasting/"><u>[Updated] In 2024, Audio Experts' Choice Best 6 Microphone Picks for Online Broadcasting</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-easy-steps-to-updating-your-windows-device-drivers-tips-by-yl-computing/"><u>1. Easy Steps to Updating Your Windows Device Drivers - Tips by YL Computing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-tier-aerial-vehicles-sold-here/"><u>2024 Approved Top-Tier Aerial Vehicles Sold Here</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-using-a-registry-optimization-tool-benefit-your-pc-performance-find-out-with-yl-softwares-guide/"><u>Can Using a Registry Optimization Tool Benefit Your PC Performance? Find Out with YL Software’s Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ensuring-proper-hardware-linkage-on-pcs-expert-advice-by-yl-software-specialists/"><u>Ensuring Proper Hardware Linkage on PCs: Expert Advice by YL Software Specialists</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-google-pixel-7a-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Google Pixel 7a Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/maximizing-audio-quality-expert-techniques-to-enhance-your-dj-setup-with-pcdj-watch-our-djntv-guide/"><u>Maximizing Audio Quality: Expert Techniques to Enhance Your DJ Setup with PCDJ – Watch Our #DJNTV Guide!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-low-resolution-scans-improve-your-image-output-with-yl-computings-expert-advice/"><u>Troubleshooting Low-Resolution Scans: Improve Your Image Output with YL Computing's Expert Advice</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/winxvideo-ai-effizientes-video-und-audio-konvertieren-durch-gpu-technologie-fur-optimale-leistung/"><u>Winxvideo AI - Effizientes Video Und Audio Konvertieren Durch GPU-Technologie Für Optimale Leistung</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

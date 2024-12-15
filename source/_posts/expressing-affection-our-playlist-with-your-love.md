@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2024-12-06T06:00:17.137Z
-updated: 2024-12-09T08:34:17.946Z
+date: 2024-12-10T17:41:54.346Z
+updated: 2024-12-14T19:13:04.911Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,15 +60,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-elite-file-sender-mp4-to-social/"><u>[New] In 2024, Elite File Sender MP4 to Social</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-maximize-your-content-with-these-top-5-obs-tips/"><u>[Updated] 2024 Approved Maximize Your Content with These Top 5 OBS Tips</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/sing-channel-overview-teaser-clips-for-2024/"><u>Composing Channel Overview Teaser Clips for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-google-maps-app-on-ios-devices/"><u>Comprehensive Evaluation of Google Maps App on iOS Devices</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-e46-m3-gtr-desktop-backgrounds-and-walls-premium-visual-content-by-yl-computing/"><u>High-Definition BMW E46 M3 GTR Desktop Backgrounds and Walls: Premium Visual Content by YL Computing</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-x50-gt-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor X50 GT Device</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/jumpstart-your-pc-experience-mastering-windows-11s-search-tool/"><u>Jumpstart Your PC Experience: Mastering Windows 11’S Search Tool</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-program-failed-to-launch-issues-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Resolving 'Program Failed to Launch' Issues on Windows: A Comprehensive Guide - By YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/setting-up-automatic-computer-backups-via-windows-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Setting Up Automatic Computer Backups via Windows Control Panel - A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-windows-control-panel-a-guide-to-network-and-internet-settings-yl-software-solutions/"><u>Understanding Windows Control Panel: A Guide to Network & Internet Settings - YL Software Solutions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-harmonizing-workplay-by-incorporating-podcast-listening/"><u>[New] Harmonizing Work/Play by Incorporating Podcast Listening</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-ultimate-guide-to-embedding-youtube-videos-in-insta-stories/"><u>[New] In 2024, The Ultimate Guide to Embedding YouTube Videos in Insta Stories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sky-gazers-rejoice-discovering-the-elevation-expertise-of-dji-spark/"><u>2024 Approved Sky Gazers Rejoice! Discovering the Elevation Expertise of DJI Spark</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-stellar-video-beginnings-with-free-tools-for-2024/"><u>Crafting Stellar Video Beginnings with Free Tools for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-guide-to-downloading-and-setting-up-sony-vaio-drivers-for-windows-computers/"><u>Easy Guide to Downloading and Setting Up Sony Vaio Drivers for Windows Computers</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/free-download-numark-mixtrack-pro3-mapping-files-for-dex-iii-pioneer-cdjs/"><u>Free Download: Numark MixTrack PRO3 Mapping Files for DEX-III | Pioneer CDJs</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-monitor-your-free-usdt-erc20-token-balances-with-the-yl-computing-tool-comprehensive-tutorial/"><u>How to Monitor Your Free USDT ERC20 Token Balances with the YL Computing Tool - Comprehensive Tutorial</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-open-your-iphone-14-without-a-home-button-by-drfone-ios/"><u>In 2024, How To Open Your iPhone 14 Without a Home Button</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-motorola-moto-g-5g-2023-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Motorola Moto G 5G (2023) to iPod | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/installing-the-essential-hp-scanner-drivers-for-windows-systems/"><u>Installing the Essential HP Scanner Drivers for Windows Systems</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-it-possible-to-install-outdated-drives-in-windows-11-expert-advice-from-yl-computing/"><u>Is It Possible To Install Outdated Drives In Windows 11? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-infinix-note-30-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Infinix Note 30</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-peripheral-detection-issues-in-windows-guidance-by-yl-computing-experts/"><u>Resolving Peripheral Detection Issues in Windows - Guidance by YL Computing Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/speed-up-your-laptop-effective-troubleshooting-strategies-by-yl-software-specialists/"><u>Speed Up Your Laptop: Effective Troubleshooting Strategies by YL Software Specialists</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-and-fixing-windows-blue-screen-issues-effectively-with-yls-comprehensive-solutions/"><u>Troubleshooting and Fixing Windows Blue Screen Issues Effectively with YL's Comprehensive Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-scanners-identifying-common-issues-and-solutions/"><u>Troubleshooting Scanners: Identifying Common Issues and Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tweak-your-computers-sound-settings-with-ease-tutorial-from-yl-software/"><u>Tweak Your Computer's Sound Settings with Ease - Tutorial From YL Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/understanding-asmrs-potential-benefits-for-you/"><u>Understanding ASMR's Potential Benefits for You</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1732519133533-yl-computing/"><u>YL Computing解析：《太平天国》起义的确切发生时间 - 最新软件洞察</u></a></li>
 </ul></div>
 

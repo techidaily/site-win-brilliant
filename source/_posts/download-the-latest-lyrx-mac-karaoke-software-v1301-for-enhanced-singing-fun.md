@@ -1,7 +1,7 @@
 ---
 title: Download the Latest LYRX Mac Karaoke Software (v1.3.0.1) for Enhanced Singing Fun!
-date: 2024-12-07T04:47:34.468Z
-updated: 2024-12-09T03:08:24.405Z
+date: 2024-12-13T00:23:22.646Z
+updated: 2024-12-15T03:40:43.365Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ _**Note:** Another update is scheduled soon for LYRX that includes new features.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.3.0.1
@@ -41,7 +41,7 @@ _**Note:** Another update is scheduled soon for LYRX that includes new features.
 _Have questions about the latest 1.3.0.1 version of our **karaoke software for MAC**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -63,22 +63,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/11/lyrx-update-v1301.jpg?fit=
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-best-free-online-photo-tools-ranked-15/"><u>[New] 2024 Approved Best Free Online Photo Tools Ranked #15</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-reviewing-vlc-as-a-multimedia-recorder/"><u>[Updated] 2024 Approved Reviewing VLC as a Multimedia Recorder</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-advanced-recording-in-windows-a-beginners-guide-for-2024/"><u>[Updated] Advanced Recording in Windows A Beginner's Guide for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-revolutionizing-note-taking-the-power-of-mematic-for-2024/"><u>[Updated] Revolutionizing Note-Taking The Power of Mematic for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-from-apple-iphone-13-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons From Apple iPhone 13? Find the Best Solution Here</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-you-boost-your-pcs-performance-with-gpu-overclocking-on-windows-explained-by-yl-computing/"><u>Can You Boost Your PC's Performance with GPU Overclocking on Windows - Explained by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/checking-your-pcs-hardware-and-os-is-your-network-adapter-compatible/"><u>Checking Your PC's Hardware and OS: Is Your Network Adapter Compatible?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/dj-revolution-try-out-dex-316s-latest-online-songbook-upgrade/"><u>DJ Revolution: Try Out DEX 3.16'S Latest Online Songbook Upgrade!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/effective-strategies-for-fixing-setup-errors-with-yl-software-solutions/"><u>Effective Strategies for Fixing Setup Errors with YL Software Solutions</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/explore-these-7-complimentary-online-fax-service-options/"><u>Explore These 7 Complimentary Online Fax Service Options</u></a></li>
-<li><a href="https://win-best.techidaily.com/gratuit-gebaseerd-afconvertere-avi-files-naar-m4v-onlinemovavi/"><u>Gratuit Gebaseerd Afconvertere AVI-Files Naar M4V - Onlinemovavi</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-accelerate-your-pc-with-proven-diagnostic-tools-and-troubleshooting-strategies-guided-by-expertise-at-yl-software/"><u>How to Accelerate Your PC with Proven Diagnostic Tools and Troubleshooting Strategies - Guided by Expertise at YL Software</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Oppo F23 5G | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/introducing-the-latest-karaoke-innovation-by-digitrax-the-pro-cloud-edition-from-pcdj/"><u>Introducing the Latest Karaoke Innovation by Digitrax - The Pro Cloud Edition From PCDJ</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/popular-beats-of-15-discover-the-most-requested-songs-for-party-djs/"><u>Popular Beats of '15: Discover the Most-Requested Songs for Party DJs!</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/streamlining-creation-youtube-video-editor-insights-for-2024/"><u>Streamlining Creation YouTube Video Editor Insights for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-graphics-card-specifications-with-yls-expert-advice/"><u>Unveiling Graphics Card Specifications with YL's Expert Advice</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-art-of-amplifying-popularity-on-youtube/"><u>[New] The Art of Amplifying Popularity on YouTube</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-art-of-visual-storytelling-with-iphone-xs-new-lens/"><u>[New] The Art of Visual Storytelling with iPhone X's New Lens</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-digital-delights-8-most-watched-movies/"><u>[Updated] 2024 Approved Digital Delights 8 Most Watched Movies</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-how-to-capture-computer-screens-and-webcam-video-simultaneously-on-windows10/"><u>[Updated] In 2024, How to Capture Computer Screens and Webcam Video Simultaneously on Windows10?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-comprehensive-guide-to-identifying-and-resolving-computer-hardware-issues-tools-and-techniques/"><u>1. Comprehensive Guide to Identifying and Resolving Computer Hardware Issues: Tools & Techniques</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-create-memorable-videos-with-the-right-thumbnail-font/"><u>2024 Approved Create Memorable Videos with the Right Thumbnail Font</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-your-picture-at-a-glance-quick-steps-for-saving-social-media-pics/"><u>2024 Approved Your Picture at a Glance Quick Steps for Saving Social Media Pics</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/accelerate-your-laptop-with-efficient-disk-management-expert-strategies-from-yl-software/"><u>Accelerate Your Laptop with Efficient Disk Management: Expert Strategies From YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-a-latest-update-on-your-pcs-windows-os-influence-its-hardware-speed-expertise-from-yl-software/"><u>Can a Latest Update on Your PC's Windows OS Influence Its Hardware Speed? - Expertise From YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-swiftly-open-control-panel-on-windows-11-expert-tips-by-yl-software/"><u>How to Swiftly Open Control Panel on Windows 11: Expert Tips by YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-an-impaired-graphics-card-cooler-responsible-for-computer-overheating-risks/"><u>Is an Impaired Graphics Card Cooler Responsible for Computer Overheating Risks?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/seamless-integration-of-chatgpt-in-your-daily-routine-a-guide-for-android-and-iphone-devices/"><u>Seamless Integration of ChatGPT in Your Daily Routine – A Guide for Android and iPhone Devices</u></a></li>
+<li><a href="https://win11.techidaily.com/simple-steps-to-restarting-windows-explorer/"><u>Simple Steps to Restarting Windows Explorer</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-tips-for-broken-sound-cards-by-yl-software-experts/"><u>Troubleshooting Tips for Broken Sound Cards by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-security-essentials-how-to-lock-down-files-with-passwords-using-yls-simple-method/"><u>Windows Security Essentials: How to Lock Down Files with Passwords Using YL's Simple Method</u></a></li>
 </ul></div>
 

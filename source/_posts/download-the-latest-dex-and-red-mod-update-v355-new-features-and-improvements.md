@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements
-date: 2024-12-06T16:53:01.093Z
-updated: 2024-12-08T18:51:58.195Z
+date: 2024-12-13T07:51:15.544Z
+updated: 2024-12-15T11:22:36.592Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### All Changes Included In 3.5.5
@@ -50,7 +50,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 Existing DEX 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/) — Existing RED Mobile 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,22 +72,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/djsoftware355updates-cover
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-vr-player-guide-unveiling-the-best-pc-streamers/"><u>[New] The Ultimate VR Player Guide Unveiling the Best PC Streamers</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-how-to-record-television-shows-on-pc-free-software-insights-for-2024/"><u>[Updated] How to Record Television Shows on PC Free Software Insights for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-laptop-and-web-navigating-live-video-communication-in-whatsapp/"><u>2024 Approved Laptop & Web Navigating Live Video Communication in WhatsApp</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-solutions-for-common-windows-programming-errors-guidance-by-yl-software-experts/"><u>Easy Solutions for Common Windows Programming Errors - Guidance by YL Software Experts</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/ensuring-optimal-ram-operation-on-your-desktop-or-laptop-expert-advice-from-coretech-solutions/"><u>Ensuring Optimal RAM Operation on Your Desktop or Laptop: Expert Advice From CoreTech Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/from-amateurs-to-pros-mastering-mac-audio-in-audacity/"><u>From Amateurs to Pros Mastering Mac Audio in Audacity</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-vivo-y02t-by-fonelab-android-recover-music/"><u>How to recover old music from your Vivo Y02T</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-strategies-for-prominent-personalities-on-snapchat/"><u>In 2024, Strategies for Prominent Personalities on Snapchat</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/jin-yuuichis-stunning-backdrops-and-digital-art-premium-wallpaper-collection-by-yl-computing/"><u>Jin Yuuichis Stunning Backdrops & Digital Art: Premium Wallpaper Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/navigating-graphics-glitches-a-comprehensive-guide-to-fix-display-problems-yl-software-experts/"><u>Navigating Graphics Glitches: A Comprehensive Guide to Fix Display Problems - YL Software Experts</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/powering-up-streamlined-settings-adjustments-in-window-11/"><u>Powering Up: Streamlined Settings Adjustments in Window 11</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/premier-pick-top-6-classic-mario-gaming-experiences-for-pc-gamers/"><u>Premier Pick: Top 6 Classic Mario Gaming Experiences for PC Gamers</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/signs-of-failure-in-your-gpu-tips-by-yl-software-experts/"><u>Signs of Failure in Your GPU: Tips by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-unresponsive-scanner-issues-a-step-by-step-guide-from-yl-computing/"><u>Solving Unresponsive Scanner Issues: A Step-by-Step Guide From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-dex-31002-update-explore-new-features-with-pcdj-dj-software/"><u>Unveiling DEX 3.10.0.2 Update: Explore New Features with PCDJ DJ Software!</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-androids-best-virtual-worlds-top-15-experiences/"><u>[Updated] 2024 Approved Android's Best Virtual Worlds Top 15 Experiences</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-step-by-step-guide-on-uploading-google-photos-to-icloud-storage/"><u>A Step-by-Step Guide on Uploading Google Photos to iCloud Storage</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723006121114-experience-the-reimagined-bioshock-2-remaster-with-improved-graphics/"><u>Experience the Reimagined BioShock 2 Remaster with Improved Graphics!</u></a></li>
+<li><a href="https://win-forum.techidaily.com/guide-to-overcoming-the-class-not-registered-bug-in-your-windows-system/"><u>Guide to Overcoming the ‘Class Not Registered’ Bug in Your Windows System</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-combo-crusade-sharing-vids-on-twitter-and-tumblr/"><u>The Combo Crusade Sharing Vids on Twitter and Tumblr</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
 </ul></div>
 

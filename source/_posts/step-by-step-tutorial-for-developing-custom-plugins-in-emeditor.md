@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Tutorial for Developing Custom Plugins in EmEditor
-date: 2024-12-05T18:08:41.852Z
-updated: 2024-12-09T09:53:54.037Z
+date: 2024-12-12T06:08:56.124Z
+updated: 2024-12-15T13:29:32.992Z
 tags:
   - product
 categories:
@@ -67,23 +67,18 @@ Viewing 4 posts - 1 through 4 (of 4 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-comprehensive-breakdown-exploring-lgs-widescreen-uhd-display/"><u>[New] Comprehensive Breakdown Exploring LG's Widescreen UHD Display</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-gateway-to-grandeur-embarking-on-a-classic-lit-journey-for-2024/"><u>[New] Gateway to Grandeur Embarking on a Classic Lit Journey for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/activating-microsofts-built-in-antivirus-tips-from-yl-software-experts/"><u>Activating Microsoft's Built-In Antivirus: Tips From YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/advanced-windows-djing-mastering-the-art-of-wasapi-over-directsoundasio-for-optimal-audio-performance/"><u>Advanced Windows DJing: Mastering the Art of WASAPI Over DirectSound/ASIO for Optimal Audio Performance</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-oppo-k11-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Oppo K11 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expert-advice-easily-refresh-your-pcs-hardware-support-with-yl-software/"><u>Expert Advice: Easily Refresh Your PC's Hardware Support with YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fix-your-windows-issues-with-ease-understanding-and-correcting-error-codes-expert-advice-from-yl-systems/"><u>Fix Your Windows Issues with Ease: Understanding and Correcting Error Codes - Expert Advice From YL Systems</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-playbook-for-podcast-titling-success-and-50plus-name-suggestions/"><u>In 2024, The Ultimate Playbook for Podcast Titling Success & 50+ Name Suggestions</u></a></li>
-<li><a href="https://win11.techidaily.com/restoring-the-functionality-of-secure-boot-after-disabling-in-windows-bios/"><u>Restoring the Functionality of Secure Boot After Disabling in Windows BIOS</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-infinix-zero-30-5g-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Infinix Zero 30 5G Device</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-streaming-webcams-comprehensive-tests-and-reviews-by-tech-experts-digital-trends/"><u>Top Rated Streaming Webcams : Comprehensive Tests & Reviews by Tech Experts | Digital Trends</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-ram-issues-on-windows-machines-with-tips-from-yl-software-experts/"><u>Troubleshooting RAM Issues on Windows Machines with Tips From YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-the-role-how-do-system-properties-serve-within-the-windows-control-panel-insights-from-yl-technologies/"><u>Unveiling the Role: How Do System Properties Serve Within the Windows Control Panel? – Insights From YL Technologies</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-picture-perfect-viewing-the-best-8k-monitors-uncovered/"><u>[New] Picture Perfect Viewing The Best 8K Monitors Uncovered</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-easy-steps-to-updating-your-windows-device-drivers-tips-by-yl-computing/"><u>1. Easy Steps to Updating Your Windows Device Drivers - Tips by YL Computing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-secrets-of-gopro-timelapse-photography/"><u>2024 Approved Unveiling the Secrets of GoPro Timelapse Photography</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-the-latest-dex-and-red-mod-update-v355-new-features-and-improvements/"><u>Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-network-passwords-in-windows-11-find-your-lost-wi-fi-key-with-this-guide/"><u>Navigating Network Passwords in Windows 11: Find Your Lost Wi-Fi Key with This Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/sharing-files-and-folders-seamlessly-a-comprehensive-guide-by-yl-computing/"><u>Sharing Files & Folders Seamlessly: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-art-of-choosing-a-superior-mobile-accessory-case/"><u>The Art of Choosing a Superior Mobile Accessory Case</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-comprehensive-guide-to-effective-screen-recording/"><u>The Comprehensive Guide to Effective Screen Recording</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/transform-your-screen-with-ethereal-supernatural-wallpaper-designs-high-quality-images-and-backgrounds-from-yl-software/"><u>Transform Your Screen with Ethereal Supernatural Wallpaper Designs: High-Quality Images & Backgrounds From YL Software</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

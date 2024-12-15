@@ -1,7 +1,7 @@
 ---
 title: "PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software"
-date: 2024-12-07T01:08:28.846Z
-updated: 2024-12-08T18:15:47.425Z
+date: 2024-12-13T01:24:14.991Z
+updated: 2024-12-14T18:40:33.526Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ Unlike macOS Catalina, which did require DEX 3 DJs to wait on upgrading for a fe
 If you haven’t already, [download and try the latest DEX 3.15 DJ software release](https://tools.techidaily.com/pcdj/products/) with macOS Big Sur, now with support for [Beatport LINK and Beatsource LINK](https://tools.techidaily.com/pcdj/products/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,19 +44,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/11/macOS-Big-Sur-800x450.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/1715860743232-new-essential-mac-screen-recorders-top-10-free-list/"><u>[New] Essential Mac Screen Recorders – Top 10 FREE List!</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-pro-templates-of-the-year-free-version/"><u>2024 Approved Premier Pro Templates of the Year - Free Version</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/cookiebot-enabled-user-engagement-tracking/"><u>Cookiebot-Enabled User Engagement Tracking</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ensuring-reliable-performance-how-to-test-ram-accurately-with-yl-software-techniques/"><u>Ensuring Reliable Performance: How to Test Ram Accurately with YL Software Techniques</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-did-the-sino-japanese-conflict-reshape-modern-chinese-history-a-comprehensive-analysis-by-yl-computing-and-yl-software/"><u>How Did The Sino-Japanese Conflict Reshape Modern Chinese History: A Comprehensive Analysis by YL Computing & YL Software</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-samsung-galaxy-s23-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Samsung Galaxy S23 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/investigating-the-causes-of-excessive-noise-from-your-pcs-cooling-fan-a-guide-by-yl-computing/"><u>Investigating the Causes of Excessive Noise From Your PC's Cooling Fan - A Guide by YL Computing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/the-evolution-of-dj-controllers-tracing-their-origins-and-growth-in-the-music-industry/"><u>The Evolution of DJ Controllers: Tracing Their Origins and Growth in the Music Industry</u></a></li>
-<li><a href="https://os-tips.techidaily.com/the-top-3-methods-for-completely-resetting-your-ipad-passcode-free-and-secure/"><u>The Top 3 Methods for Completely Resetting Your iPad: Passcode-Free and Secure</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/top-reasons-behind-your-computers-decreased-performance-insights-from-yl-computing/"><u>Top Reasons Behind Your Computer's Decreased Performance: Insights From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-mastering-file-recovery-techniques-on-windows-yl-computing/"><u>Ultimate Guide: Mastering File Recovery Techniques on Windows - YL Computing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/what-is-the-youtube-creator-studio-in-2024/"><u>What Is the YouTube Creator Studio, In 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-screening-the-modern-internet-best-capture-apps-reviewed-for-2024/"><u>[New] Screening the Modern Internet Best Capture Apps Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-apex-fb-platforms-topping-the-10-list/"><u>[Updated] Apex FB Platforms Topping the 10 List</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-x-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone X Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/checking-if-your-graphics-card-works-with-your-pc-a-comprehensive-guide-yl-tech-solutions/"><u>Checking if Your Graphics Card Works With Your PC: A Comprehensive Guide - YL Tech Solutions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-video-magic-summit/"><u>Crafting Video Magic Summit</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-tips-for-restoring-default-graphic-configurations-on-windows-by-yl-software-experts/"><u>Easy Tips for Restoring Default Graphic Configurations on Windows by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expert-advice-additional-strategies-to-accelerate-your-computers-performance-learn-from-yl-computing/"><u>Expert Advice: Additional Strategies to Accelerate Your Computer's Performance - Learn From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/get-your-gemini-slate-4-ready-free-pcdj-dextrose-controller-download-for-ultimate-mixing-skills/"><u>Get Your Gemini Slate 4 Ready: Free PCDJ Dextrose Controller Download for Ultimate Mixing Skills!</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-lava-blaze-pro-5g-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Lava Blaze Pro 5G Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-realme-note-50-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Realme Note 50 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/overcoming-bsod-in-windows-11-irql-error/"><u>Overcoming BSOD in Windows 11 - Irql Error</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/yl-computings-720-collection-exclusive-shoe-graphics-wallpapers-and-more/"><u>YL Computing's 720 Collection: Exclusive Shoe Graphics, Wallpapers & More</u></a></li>
 </ul></div>
 

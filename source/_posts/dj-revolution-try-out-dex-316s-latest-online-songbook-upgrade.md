@@ -1,7 +1,7 @@
 ---
 title: "DJ Revolution: Try Out DEX 3.16'S Latest Online Songbook Upgrade!"
-date: 2024-12-02T17:59:07.770Z
-updated: 2024-12-08T20:17:04.817Z
+date: 2024-12-13T10:56:34.476Z
+updated: 2024-12-15T01:55:00.493Z
 tags:
   - product
 categories:
@@ -43,13 +43,13 @@ OK, enough for the serious stuff — you want to download and test!
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1 "Login Screen")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1) Open up DEX 3.16 and click the Options button. Under the “Karaoke” tab, click on the “Login to KSR” button. 
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/clickregister-signup-2ndslide.jpg?fit=1030%2C575&ssl=1 "Click Register")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/clickregister-signup-2ndslide.jpg?fit=1030%2C575&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2) Click on the “Register / Sign Up” Option. 
 
@@ -68,7 +68,7 @@ OK, enough for the serious stuff — you want to download and test!
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1 "Restart")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 6) Restart DEX 3\. 
@@ -80,7 +80,7 @@ OK, enough for the serious stuff — you want to download and test!
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/backintooptions-clickupdate-KSR-songbook-namesongbook-8thslide.jpg?fit=1030%2C575&ssl=1 "upload songbook")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/backintooptions-clickupdate-KSR-songbook-namesongbook-8thslide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 8) Go into DEX 3’s options and under the “Karaoke” tab click the “Update KSR Songbook” button to sync your list of karaoke music. You will be asked to add a venue/songbook name. Create a unique name and click “OK”. 
@@ -88,16 +88,12 @@ OK, enough for the serious stuff — you want to download and test!
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/afterbooksync-confirmationandvenueID-9thslide.jpg?fit=1030%2C575&ssl=1 "confirm")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/afterbooksync-confirmationandvenueID-9thslide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 9) You will be assigned a unique venue ID. It’s this ID number you share with your singers. Singer will need to go to [ksr.pcdj.com](https://tools.techidaily.com/pcdj/products/) and create a free account. They will then be prompted for your venue ID. Once they apply the ID they can view, search, and make request from your online karaoke song book. 
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/requestsreceived-10thslide.jpg?fit=1030%2C575&ssl=1 "Request Received")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/requestsreceived-10thslide.jpg?fit=1030%2C575&ssl=1)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 10) When a singer submits a song request you will be notified in DEX 3’s singer rotation list. Click “Accept” to accept the request and the singer/song will be submitted into rotation. That’s it! 
 
@@ -110,6 +106,10 @@ The screenshots displayed above are of the ‘ KSR web app’ that your karaoke 
 Please feel free to test the new KSR system with DEX 3.16\. If you have issues or suggestions, post them in the [Official PCDJ User Group](http://www.facebook.com/groups/pcdjusergroup/) on Facebook (you will find a pinned thread regarding the new DEX 3.16 Release Candidate – please post reports in that specific thread).
 
 _**Enjoy!**_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Related_
 
@@ -130,20 +130,19 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/ksr-coverimage-1.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-video-links-made-better-with-desktop-and-mobile-timestamping/"><u>[New] In 2024, YouTube Video Links Made Better with Desktop & Mobile Timestamping</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-top-5-pro-drone-selections-for-professionals-for-2024/"><u>[New] Top 5 Pro Drone Selections for Professionals for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-exclusive-selection-of-fastest-screen-capture-apps/"><u>[Updated] Exclusive Selection of Fastest Screen Capture Apps</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/can-artificial-intelligence-be-a-friend-to-the-mind/"><u>Can Artificial Intelligence Be a Friend to the Mind?</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/comment-enregistrer-avec-succes-un-fichier-pst-dans-onedrive-solution-etablie/"><u>Comment Enregistrer Avec Succès Un Fichier PST Dans OneDrive - Solution Établie</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/disabling-windows-firewall-efficiently-through-control-panel-settings-expert-advice-from-yl-software/"><u>Disabling Windows Firewall Efficiently Through Control Panel Settings - Expert Advice From YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/discover-how-to-inspect-file-attributes-on-your-pc-using-windows-tips-by-yl-computing/"><u>Discover How to Inspect File Attributes on Your PC Using Windows - Tips by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/discover-the-benefits-of-using-the-reloop-mixtour-supported-by-dex-3-software-a-new-era-in-djing-technology/"><u>Discover the Benefits of Using the REloop Mixtour Supported by DEX 3 Software - A New Era in DJing Technology</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-can-updating-your-software-and-drivers-boost-your-pcs-performance-insights-from-yl-computing/"><u>How Can Updating Your Software & Drivers Boost Your PC's Performance: Insights From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/impact-and-legacy-how-the-era-of-the-three-kingdoms-influenced-modern-chinese-history-insights-from-yl-computing/"><u>Impact and Legacy: How the Era of the Three Kingdoms Influenced Modern Chinese History - Insights From YL Computing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/jestful-joymaker-online-for-2024/"><u>Jestful Joymaker Online for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/speed-up-your-laptop-effective-troubleshooting-strategies-by-yl-software-specialists/"><u>Speed Up Your Laptop: Effective Troubleshooting Strategies by YL Software Specialists</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-tutorial-on-checking-your-websites-design-before-go-live/"><u>Step-by-Step Tutorial on Checking Your Website's Design Before Go Live</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/the-ultimate-fix-for-a-non-functioning-print-screen-on-windows-operating-systems/"><u>The Ultimate Fix for a Non-Functioning Print Screen on Windows Operating Systems</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-and-fixing-windows-blue-screen-issues-effectively-with-yls-comprehensive-solutions/"><u>Troubleshooting and Fixing Windows Blue Screen Issues Effectively with YL's Comprehensive Solutions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-step-by-step-guide-to-3d-text-effects-in-psx/"><u>[New] 2024 Approved Step-by-Step Guide to 3D Text Effects in PSX</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-guide-to-timing-your-wedding-in-10-top-apps/"><u>[New] Ultimate Guide to Timing Your Wedding, in 10 Top Apps</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-beyond-the-buzzwords-the-leading-edits-without-vimeo/"><u>2024 Approved Beyond the Buzzwords The Leading Edits Without Vimeo</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/controlling-application-access-on-your-pc-expert-tips-for-using-the-windows-firewall-effectively-yl-software-solutions/"><u>Controlling Application Access on Your PC: Expert Tips for Using the Windows Firewall Effectively - YL Software Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-the-latest-dex-and-red-mod-update-v355-new-features-and-improvements/"><u>Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expert-solutions-to-power-up-your-scanner-from-scratch-tips-from-yl-software-professionals/"><u>Expert Solutions to Power Up Your Scanner From Scratch - Tips From YL Software Professionals</u></a></li>
+<li><a href="https://win-dash.techidaily.com/hassle-free-installation-of-wacom-pen-and-touch-driver-software/"><u>Hassle-Free Installation of Wacom Pen & Touch Driver Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-honor-play-8t-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Honor Play 8T.</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-iphone-13-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On iPhone 13?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/master-the-art-of-file-encryption-simple-password-security-techniques-with-yl-software-insights/"><u>Master the Art of File Encryption: Simple Password Security Techniques with YL Software Insights</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-exploring-the-causes-of-your-windows-10-machines-unexpected-boot-cycles/"><u>Resolved! Exploring the Causes of Your Windows 10 Machine's Unexpected Boot Cycles</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/restoring-integrity-to-windows-11-system-files-tips-and-tricks-from-yl-computing-experts/"><u>Restoring Integrity to Windows 11 System Files: Tips and Tricks From YL Computing Experts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transforming-education-a-guide-to-9-crucial-tech-items-every-student-should-own/"><u>Transforming Education: A Guide to 9 Crucial Tech Items Every Student Should Own</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ultimate-freeze-frame-collection-for-mac-max-156-chars-for-2024/"><u>Ultimate Freeze Frame Collection for Mac (Max 156 Chars) for 2024</u></a></li>
 </ul></div>
 

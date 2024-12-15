@@ -1,7 +1,7 @@
 ---
 title: Discover the Latest Version of LYRX Karaoke Software (v1.5) - Improved Features and Performance!
-date: 2024-12-04T03:09:20.971Z
-updated: 2024-12-09T01:56:18.307Z
+date: 2024-12-12T10:21:22.547Z
+updated: 2024-12-14T18:01:13.632Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Fixed, and Updated in LYRX 1.5
@@ -48,7 +48,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 _Have questions about the latest 1.5 version of our LYRX **karaoke player**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -70,20 +70,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2019/07/lyrx15-cover.jpg?fit=706%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-unveiling-the-art-of-flipping-photo-shades/"><u>[New] In 2024, Unveiling the Art of Flipping Photo Shades</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-leading-edge-webcams-insiders-choice-in-windows-11/"><u>[Updated] In 2024, Leading Edge Webcams Insider's Choice in Windows 11</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-unveiling-the-link-how-the-sino-japanese-conflict-fueled-wwii-onset-insights-by-yl-computing/"><u>1. Unveiling the Link: How the Sino-Japanese Conflict Fueled WWII Onset - Insights by YL Computing</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-analyzing-aurora-hdrs-impact-on-visual-experience/"><u>In 2024, Analyzing Aurora HDR's Impact on Visual Experience</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-the-ultimate-hack-swiftly-delete-your-youtube-comments/"><u>In 2024, The Ultimate Hack Swiftly Delete Your YouTube Comments</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/is-it-possible-to-run-your-scanner-on-oses-apart-from-windows-discover-the-options-with-yl-software/"><u>Is It Possible to Run Your Scanner on OSes Apart From Windows? Discover the Options with YL Software</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-timecode-calculator-showdown-the-top-8-tools/"><u>New In 2024, Timecode Calculator Showdown The Top 8 Tools</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-your-gpu-drivers-troubles-expert-tips-from-yl-computings-best-practices/"><u>Resolving Your GPU Drivers Troubles: Expert Tips From YL Computing's Best Practices</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/securing-your-digital-assets-effective-security-measures-in-the-world-of-crypto-guidance-by-yl-tech-experts/"><u>Securing Your Digital Assets: Effective Security Measures in the World of Crypto – Guidance by YL Tech Experts</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/sicherung-ihres-windows-10-betriebs-kompakte-anleitungen-fur-einen-zuverlassigen-systemschutz/"><u>Sicherung Ihres Windows 10 Betriebs - Kompakte Anleitungen Für Einen Zuverlässigen Systemschutz</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-7-solutions-to-accelerate-your-sluggish-iphone-performance/"><u>Top 7 Solutions to Accelerate Your Sluggish iPhone Performance</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-confucian-influence-the-impact-on-chinese-society-during-the-qing-era-explored-by-yl-technologies/"><u>Unveiling Confucian Influence: The Impact on Chinese Society During the Qing Era - Explored by YL Technologies</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-make-a-movie-online-for-free-top-9-options/"><u>Updated 2024 Approved Make a Movie Online for Free Top 9 Options</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-tenth-user-registration-walkthrough-tips-and-tricks-from-the-experts-at-yl-computing/"><u>Windows Tenth User Registration Walkthrough - Tips and Tricks From the Experts at YL Computing</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-perfect-your-asmr-recordings-with-these-mic-choices/"><u>[New] 2024 Approved Perfect Your ASMR Recordings with These Mic Choices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-monetary-gains-mr-beast-in-focus/"><u>[Updated] 2024 Approved Monetary Gains Mr. Beast in Focus</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/accelerate-your-pc-performance-expert-tips-from-yl-computing-to-release-disk-space-efficiently/"><u>Accelerate Your PC Performance: Expert Tips From YL Computing to Release Disk Space Efficiently</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adobe-cloud-storage-demystified-features-functionality-and-alternatives-reviewed/"><u>Adobe Cloud Storage Demystified Features, Functionality, and Alternatives Reviewed</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/free-download-numark-mixtrack-pro3-mapping-files-for-dex-iii-pioneer-cdjs/"><u>Free Download: Numark MixTrack PRO3 Mapping Files for DEX-III | Pioneer CDJs</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-monitor-your-free-usdt-erc20-token-balances-with-the-yl-computing-tool-comprehensive-tutorial/"><u>How to Monitor Your Free USDT ERC20 Token Balances with the YL Computing Tool - Comprehensive Tutorial</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-resolve-halo-infinites-persistent-black-screen-errors-effectively/"><u>How to Resolve Halo Infinite's Persistent Black Screen Errors Effectively</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-it-possible-to-install-outdated-drives-in-windows-11-expert-advice-from-yl-computing/"><u>Is It Possible To Install Outdated Drives In Windows 11? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-from-sketch-to-screen-top-cartoon-video-maker-apps-for-android-and-ios-for-2024/"><u>New From Sketch to Screen Top Cartoon Video Maker Apps for Android and iOS for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-itel-a60s-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Itel A60s Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-failing-windows-outlook-automation-rules/"><u>Resolving Failing Windows Outlook Automation Rules</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-peripheral-detection-issues-in-windows-guidance-by-yl-computing-experts/"><u>Resolving Peripheral Detection Issues in Windows - Guidance by YL Computing Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/speed-up-your-laptop-effective-troubleshooting-strategies-by-yl-software-specialists/"><u>Speed Up Your Laptop: Effective Troubleshooting Strategies by YL Software Specialists</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/top-10-royal-combat-showcases/"><u>Top 10 Royal Combat Showcases</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-3-cost-free-tools-for-converting-blu-ray-discs-to-digital-format-on-windows-and-macos/"><u>Top 3 Cost-Free Tools for Converting Blu-Ray Discs to Digital Format on Windows & macOS</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-scanners-identifying-common-issues-and-solutions/"><u>Troubleshooting Scanners: Identifying Common Issues and Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tweak-your-computers-sound-settings-with-ease-tutorial-from-yl-software/"><u>Tweak Your Computer's Sound Settings with Ease - Tutorial From YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1732519133533-yl-computing/"><u>YL Computing解析：《太平天国》起义的确切发生时间 - 最新软件洞察</u></a></li>
 </ul></div>
 

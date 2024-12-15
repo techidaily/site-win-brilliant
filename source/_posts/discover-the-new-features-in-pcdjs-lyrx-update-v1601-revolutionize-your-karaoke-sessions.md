@@ -1,7 +1,7 @@
 ---
 title: Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!
-date: 2024-12-02T20:32:26.077Z
-updated: 2024-12-09T01:46:31.021Z
+date: 2024-12-12T23:16:12.665Z
+updated: 2024-12-15T12:24:45.981Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8a38e69f6bb6d23740b2b061d8fc927f2b1d57e63
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.2 of LYRX karaoke software is ready for download!
@@ -31,7 +31,7 @@ You can test software all you want internally, and iron out issues with your bet
 ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrx.png?fit=300%2C210&ssl=1 "LYRX 1.6.0.2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Not only does the free 1.6.0.2 LYRX update address the reported problems, we were able to apply extensive under-the-hood optimizations and performance improvements. The updates should be noticeable, to the extent your MAC or PC will run cooler than with prior versions.
@@ -45,7 +45,7 @@ Again, we appreciate all the tremendous and extensive feedback we’ve received 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.2
@@ -63,7 +63,7 @@ If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download fro
 _Have questions about the latest 1.6.0.2 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,20 +85,22 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover-1.jpg?fit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-how-to-optimize-video-engagement-through-resizing-thumbnails-on-youtube/"><u>[New] How to Optimize Video Engagement Through Resizing Thumbnails on YouTube</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-quiet-guide-to-livestreaming-yourself-on-instagram/"><u>[New] The Quiet Guide to Livestreaming Yourself on Instagram</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-accelerate-your-media-top-8-android-picks/"><u>[Updated] Accelerate Your Media Top 8 Android Picks</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-affordable-pc-obs-tuning-guide-for-2024/"><u>[Updated] Affordable PC OBS Tuning Guide for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-frame-loss-enigma-why-are-videos-cropped-by-imovie/"><u>2024 Approved Frame Loss Enigma Why Are Videos Cropped by iMovie?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/conversion-de-archivos-a-wma-online-gratuito-con-movavi/"><u>Conversión De Archivos a WMA Online Gratuito Con Movavi</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/download-pro-karaoke-program-access-the-latest-beta-version-of-karaoki-perfected-dj-experience/"><u>Download Pro Karaoke Program: Access the Latest Beta Version of Karaoki - Perfected DJ Experience!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/enhance-graphics-performance-in-games-the-ultimate-guide-to-tweaking-gpu-settings-in-windows-by-yl-computing-expertise/"><u>Enhance Graphics Performance in Games: The Ultimate Guide to Tweaking GPU Settings in Windows by YL Computing Expertise</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mastering-the-art-of-cryptocurrency-marketplaces-with-yl-software-solutions/"><u>Mastering the Art of Cryptocurrency Marketplaces with YL Software Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/maximize-computer-speed-a-step-by-step-guide-from-yl-software-experts/"><u>Maximize Computer Speed: A Step-by-Step Guide From YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/personalizing-your-firefox-browser-a-step-by-step-guide-by-yl-computing/"><u>Personalizing Your Firefox Browser: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-audio-issues-how-to-fix-a-non-functional-sound-card-expert-advice-from-yl-computing/"><u>Troubleshooting Audio Issues: How to Fix a Non-Functional Sound Card - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/ultimate-troubleshooting-techniques-for-fixing-unexpected-app-closures/"><u>Ultimate Troubleshooting Techniques for Fixing Unexpected App Closures</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-potential-hazards-the-impacts-of-editing-your-windows-registry-in-depth-analysis-by-yl-software/"><u>Understanding Potential Hazards: The Impacts of Editing Your Windows Registry - In-Depth Analysis by YL Software</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-peak-traffic-times-for-stellar-video-performance/"><u>[New] In 2024, Peak Traffic Times for Stellar Video Performance</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-stitch-together-photographs-the-montage-masterclass-for-2024/"><u>[New] Stitch Together Photographs The Montage Masterclass for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-all-encompassing-look-at-the-ricoh-theta-s-design/"><u>[Updated] In 2024, All-Encompassing Look at the Ricoh Theta S Design</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-captivating-content-with-correct-dimensions/"><u>Crafting Captivating Content with Correct Dimensions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/criteria-for-picking-a-secure-bitcoin-trading-platform-advice-from-yl-software-experts/"><u>Criteria for Picking a Secure Bitcoin Trading Platform - Advice From YL Software Experts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/critical-review-unveiling-the-intelligent-design-and-powerful-features-of-the-samsung-galaxy-watch/"><u>Critical Review: Unveiling the Intelligent Design and Powerful Features of the Samsung Galaxy Watch</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/discover-the-latest-version-of-lyrx-karaoke-software-v15-improved-features-and-performance/"><u>Discover the Latest Version of LYRX Karaoke Software (v1.5) - Improved Features and Performance!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/finding-latest-system-upgrades-on-your-windows-pc-tips-from-yl-computing/"><u>Finding Latest System Upgrades on Your Windows PC - Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/fix-your-print-jobs-stuck-in-queue-solve-the-spooler-error-with-yls-expert-tips/"><u>Fix Your Print Jobs Stuck in Queue: Solve the Spooler Error with YL's Expert Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-snowbound-sagas-2022-olympic-milestones/"><u>In 2024, Snowbound Sagas 2022 Olympic Milestones</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-sound-problems-on-your-pc-a-step-by-step-guide-by-yl-computing/"><u>Resolving Sound Problems on Your PC: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/safeguarding-your-digital-wallet-a-comprehensive-guide-to-protecting-your-bitcoins-with-yl-software-solutions/"><u>Safeguarding Your Digital Wallet: A Comprehensive Guide to Protecting Your Bitcoins with YL Software Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-bizarre-hue-changes-in-displays-insights-from-yl-computing-experts/"><u>Solving Bizarre Hue Changes in Displays: Insights From YL Computing Experts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138543805-9781528783187-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-procedure-its-rites-and-its-mysteries/"><u>The History of Magic - Including a Clear and Precise Exposition of its Procedure, Its Rites and Its Mysteries | Free Book</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-quest-for-authenticity-differentiating-fake-from-genuine-ai-outputs/"><u>The Quest for Authenticity: Differentiating Fake From Genuine AI Outputs</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-pcs-main-board-tips-and-techniques-by-yl-software-experts/"><u>Troubleshooting Your PC's Main Board - Tips & Techniques by YL Software Experts</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-make-a-movie-in-minutes-the-easy-way-to-film-success/"><u>Updated Make a Movie in Minutes The Easy Way to Film Success</u></a></li>
 </ul></div>
 

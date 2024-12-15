@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2024-12-07T02:06:04.993Z
-updated: 2024-12-09T10:13:23.112Z
+date: 2024-12-12T01:02:53.801Z
+updated: 2024-12-15T04:59:20.014Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
@@ -59,7 +59,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,18 +81,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-supercharge-your-smartphones-video-quality-for-2024/"><u>[New] Supercharge Your Smartphone's Video Quality for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-confirm-monetization-accuracy-essential-steps-for-your-yt-channels/"><u>[Updated] In 2024, Confirm Monetization Accuracy Essential Steps for Your YT Channels</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-snickel-and-snicker-5-best-meme-generating-apps/"><u>[Updated] Snickel & Snicker 5 Best Meme Generating Apps</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlocking-speedy-streams-the-noobs-snapchat-guide/"><u>[Updated] Unlocking Speedy Streams The Noob’s Snapchat Guide</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/capturing-gameplay-a-sims-4-tutorial/"><u>Capturing Gameplay A Sims 4 Tutorial</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/controlling-who-can-use-specific-applications-on-your-windows/"><u>Controlling Who Can Use Specific Applications on Your Windows</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/exploring-window-11s-various-energy-options-a-comprehensive-guide-by-yl-computing/"><u>Exploring Window 11'S Various Energy Options: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-xiaomi-civi-3-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Xiaomi Civi 3 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-fix-your-monitor-if-its-showing-strange-patterns-tips-from-yl-software-experts/"><u>How to Fix Your Monitor If It’s Showing Strange Patterns? Tips From YL Software Experts</u></a></li>
-<li><a href="https://article-posts.techidaily.com/insightful-review-the-comprehensive-theta-s-experience-for-2024/"><u>Insightful Review The Comprehensive Theta S Experience for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/sound-card-health-check-determining-the-functionality-of-your-pcs-audio-component-expert-tips-from-yl-software/"><u>Sound Card Health Check: Determining the Functionality of Your PC’s Audio Component – Expert Tips From YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/tidy-up-your-pc-master-the-art-of-deleting-surplus-data-with-yl-computings-strategies/"><u>Tidy Up Your PC: Master the Art of Deleting Surplus Data with YL Computing's Strategies</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-computings-how-to-managing-gps-services-in-windows-11-enable-or-disable-with-ease/"><u>YL Computing's How-To: Managing GPS Services in Windows 11 – Enable or Disable with Ease</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-fashionable-filters-for-every-occasion-our-top-20-snap-lenses-guide/"><u>[New] 2024 Approved Fashionable Filters for Every Occasion Our Top 20 Snap Lenses Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-essential-knowledge-for-instagram-success-a-guide-to-behind-the-scenes-metrics/"><u>[New] In 2024, Essential Knowledge for Instagram Success A Guide to Behind-the-Scenes Metrics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-revenue-revolution-unlocking-online-income-through-youtube-monetization/"><u>[New] In 2024, Revenue Revolution Unlocking Online Income Through YouTube Monetization</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-screencastify-recorder-a-complete-step-wise-how-to-guide-for-2024/"><u>[New] Screencastify Recorder - A Complete Step-Wise How-To Guide for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
+<li><a href="https://games-able.techidaily.com/erasing-recent-updates-from-xbox-controllers-series-sx/"><u>Erasing Recent Updates From Xbox Controllers Series S/X</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-your-iphone-se-from-your-apple-id-by-drfone-ios/"><u>How To Unlink Your iPhone SE From Your Apple ID</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-4-ways-to-unlock-apple-iphone-11-pro-max-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock Apple iPhone 11 Pro Max to Use USB Accessories Without Passcode</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-motorola-moto-g24-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Motorola Moto G24 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-realme-12-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Realme 12 5G</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-configuring-your-internet-settings-via-windows-control-panel-expert-advice-by-yl-computing/"><u>Step-by-Step Guide: Configuring Your Internet Settings via Windows Control Panel - Expert Advice by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
 </ul></div>
 
