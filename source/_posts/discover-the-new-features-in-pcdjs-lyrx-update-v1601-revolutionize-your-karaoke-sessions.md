@@ -1,7 +1,7 @@
 ---
 title: Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!
-date: 2024-12-12T23:16:12.665Z
-updated: 2024-12-15T12:24:45.981Z
+date: 2024-12-23T10:03:20.509Z
+updated: 2024-12-24T13:29:16.491Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8a38e69f6bb6d23740b2b061d8fc927f2b1d57e63
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.2 of LYRX karaoke software is ready for download!
@@ -31,7 +31,7 @@ You can test software all you want internally, and iron out issues with your bet
 ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrx.png?fit=300%2C210&ssl=1 "LYRX 1.6.0.2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Not only does the free 1.6.0.2 LYRX update address the reported problems, we were able to apply extensive under-the-hood optimizations and performance improvements. The updates should be noticeable, to the extent your MAC or PC will run cooler than with prior versions.
@@ -45,7 +45,7 @@ Again, we appreciate all the tremendous and extensive feedback we’ve received 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.2
@@ -63,7 +63,7 @@ If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download fro
 _Have questions about the latest 1.6.0.2 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,22 +85,19 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover-1.jpg?fit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-peak-traffic-times-for-stellar-video-performance/"><u>[New] In 2024, Peak Traffic Times for Stellar Video Performance</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-stitch-together-photographs-the-montage-masterclass-for-2024/"><u>[New] Stitch Together Photographs The Montage Masterclass for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-all-encompassing-look-at-the-ricoh-theta-s-design/"><u>[Updated] In 2024, All-Encompassing Look at the Ricoh Theta S Design</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crafting-captivating-content-with-correct-dimensions/"><u>Crafting Captivating Content with Correct Dimensions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/criteria-for-picking-a-secure-bitcoin-trading-platform-advice-from-yl-software-experts/"><u>Criteria for Picking a Secure Bitcoin Trading Platform - Advice From YL Software Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/critical-review-unveiling-the-intelligent-design-and-powerful-features-of-the-samsung-galaxy-watch/"><u>Critical Review: Unveiling the Intelligent Design and Powerful Features of the Samsung Galaxy Watch</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/discover-the-latest-version-of-lyrx-karaoke-software-v15-improved-features-and-performance/"><u>Discover the Latest Version of LYRX Karaoke Software (v1.5) - Improved Features and Performance!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/finding-latest-system-upgrades-on-your-windows-pc-tips-from-yl-computing/"><u>Finding Latest System Upgrades on Your Windows PC - Tips From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fix-your-print-jobs-stuck-in-queue-solve-the-spooler-error-with-yls-expert-tips/"><u>Fix Your Print Jobs Stuck in Queue: Solve the Spooler Error with YL's Expert Tips</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-snowbound-sagas-2022-olympic-milestones/"><u>In 2024, Snowbound Sagas 2022 Olympic Milestones</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-sound-problems-on-your-pc-a-step-by-step-guide-by-yl-computing/"><u>Resolving Sound Problems on Your PC: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/safeguarding-your-digital-wallet-a-comprehensive-guide-to-protecting-your-bitcoins-with-yl-software-solutions/"><u>Safeguarding Your Digital Wallet: A Comprehensive Guide to Protecting Your Bitcoins with YL Software Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-bizarre-hue-changes-in-displays-insights-from-yl-computing-experts/"><u>Solving Bizarre Hue Changes in Displays: Insights From YL Computing Experts</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138543805-9781528783187-the-history-of-magic-including-a-clear-and-precise-exposition-of-its-procedure-its-rites-and-its-mysteries/"><u>The History of Magic - Including a Clear and Precise Exposition of its Procedure, Its Rites and Its Mysteries | Free Book</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-quest-for-authenticity-differentiating-fake-from-genuine-ai-outputs/"><u>The Quest for Authenticity: Differentiating Fake From Genuine AI Outputs</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-pcs-main-board-tips-and-techniques-by-yl-software-experts/"><u>Troubleshooting Your PC's Main Board - Tips & Techniques by YL Software Experts</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-make-a-movie-in-minutes-the-easy-way-to-film-success/"><u>Updated Make a Movie in Minutes The Easy Way to Film Success</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-foremost-8-titans-of-4k-blu-ray-technology/"><u>[New] Foremost 8 Titans of 4K Blu-Ray Technology</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-secure-your-digital-footprints-with-tiktok-video-backup/"><u>[New] In 2024, Secure Your Digital Footprints with TikTok Video Backup</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premier-playwriting-for-podcasts-and-radios/"><u>[New] Premier Playwriting for Podcasts & Radios</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-breaking-boundaries-custom-font-use-in-after-effects-for-2024/"><u>[Updated] Breaking Boundaries Custom Font Use in After Effects for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-thumbnail-wizardry-top-8-tools-to-boost-view-counts/"><u>[Updated] Thumbnail Wizardry Top 8 Tools to Boost View Counts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-steps-removing-applications-from-your-pc-insights-by-yl-computing/"><u>Easy Steps: Removing Applications From Your PC - Insights by YL Computing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-techniques-to-correct-unauthorized-web-page-errors-http-401/"><u>Effective Techniques to Correct 'Unauthorized' Web Page Errors (HTTP 401)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effortless-repairs-for-magic-mouse-touch-sensitivity-issues/"><u>Effortless Repairs for Magic Mouse Touch Sensitivity Issues</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/explore-digital-art-by-angie-yonaga-premium-wallpapers-and-backgrounds-for-enthusiasts-powered-by-yl-software/"><u>Explore Digital Art by Angie Yonaga: Premium Wallpapers and Backgrounds for Enthusiasts – Powered by YL Software</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fingerprint-reader-unavailable-in-windows-os/"><u>Fingerprint Reader: Unavailable in Windows OS</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-apple-iphone-11-pro-and-browser-drfone-by-drfone-virtual-ios/"><u>In 2024, Prevent Cross-Site Tracking on Apple iPhone 11 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/nathan-heywood-collection-premium-wallpapers-and-banners-created-by-yl-computing/"><u>Nathan Heywood Collection: Premium Wallpapers & Banners - Created by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/secure-your-investments-expert-guide-on-safe-cryptocurrency-strategies-by-yl-computing/"><u>Secure Your Investments: Expert Guide on Safe Cryptocurrency Strategies by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-your-pcs-silent-issue-troubleshooting-a-non-responsive-sound-card-expert-advice-from-yl-computing/"><u>Solving Your PC's Silent Issue: Troubleshooting a Non-Responsive Sound Card - Expert Advice From YL Computing</u></a></li>
 </ul></div>
 

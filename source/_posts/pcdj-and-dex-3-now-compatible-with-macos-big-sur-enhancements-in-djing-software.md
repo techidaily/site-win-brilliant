@@ -1,7 +1,7 @@
 ---
 title: "PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software"
-date: 2024-12-13T01:24:14.991Z
-updated: 2024-12-14T18:40:33.526Z
+date: 2024-12-21T23:26:47.689Z
+updated: 2024-12-24T06:03:02.532Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ Unlike macOS Catalina, which did require DEX 3 DJs to wait on upgrading for a fe
 If you haven’t already, [download and try the latest DEX 3.15 DJ software release](https://tools.techidaily.com/pcdj/products/) with macOS Big Sur, now with support for [Beatport LINK and Beatsource LINK](https://tools.techidaily.com/pcdj/products/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,17 +44,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/11/macOS-Big-Sur-800x450.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-screening-the-modern-internet-best-capture-apps-reviewed-for-2024/"><u>[New] Screening the Modern Internet Best Capture Apps Reviewed for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-apex-fb-platforms-topping-the-10-list/"><u>[Updated] Apex FB Platforms Topping the 10 List</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-x-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone X Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/checking-if-your-graphics-card-works-with-your-pc-a-comprehensive-guide-yl-tech-solutions/"><u>Checking if Your Graphics Card Works With Your PC: A Comprehensive Guide - YL Tech Solutions</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ing-video-magic-summit/"><u>Crafting Video Magic Summit</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-tips-for-restoring-default-graphic-configurations-on-windows-by-yl-software-experts/"><u>Easy Tips for Restoring Default Graphic Configurations on Windows by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expert-advice-additional-strategies-to-accelerate-your-computers-performance-learn-from-yl-computing/"><u>Expert Advice: Additional Strategies to Accelerate Your Computer's Performance - Learn From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/get-your-gemini-slate-4-ready-free-pcdj-dextrose-controller-download-for-ultimate-mixing-skills/"><u>Get Your Gemini Slate 4 Ready: Free PCDJ Dextrose Controller Download for Ultimate Mixing Skills!</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-lava-blaze-pro-5g-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Lava Blaze Pro 5G Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-realme-note-50-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Realme Note 50 to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/overcoming-bsod-in-windows-11-irql-error/"><u>Overcoming BSOD in Windows 11 - Irql Error</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-computings-720-collection-exclusive-shoe-graphics-wallpapers-and-more/"><u>YL Computing's 720 Collection: Exclusive Shoe Graphics, Wallpapers & More</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-essential-steps-for-iphone-7-screen-capture/"><u>[New] 2024 Approved Essential Steps for iPhone 7 Screen Capture</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-chuckles-churner-visual-composer/"><u>[Updated] In 2024, Chuckles Churner Visual Composer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sound-fidelity-at-home-mastering-quality-recordings/"><u>[Updated] Sound Fidelity at Home Mastering Quality Recordings</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-visual-vault-verifier-for-2024/"><u>[Updated] Visual Vault Verifier for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/hdr-camera-mastery-essential-buying-tips-for-2024/"><u>HDR Camera Mastery Essential Buying Tips for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-steam-client-local-communication-failure-problem-solved/"><u>How to Fix Steam Client Local Communication Failure - Problem Solved</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-configuring-your-internet-settings-via-windows-control-panel-expert-advice-by-yl-computing/"><u>Step-by-Step Guide: Configuring Your Internet Settings via Windows Control Panel - Expert Advice by YL Computing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/techniques-to-stabilize-photos-and-movies-on-ios/"><u>Techniques to Stabilize Photos and Movies on iOS</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-the-causes-of-your-pcs-overheating-issues-insights-from-yl-computing/"><u>Understanding the Causes of Your PC's Overheating Issues - Insights From YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/universal-education-mondly-your-linguistic-ally/"><u>Universal Education: Mondly, Your Linguistic Ally</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/acachha-taraha-sa-wd-elements-daraiva-thavara-shathhata-janakara-panaraparapata-kara-eka-anatha-maraga/"><u>अच्छी तरह से WD Elements ड्राइव द्वारा शोधित जानकारी पुनर्प्राप्त करें: एक अनूठी मार्ग</u></a></li>
 </ul></div>
 

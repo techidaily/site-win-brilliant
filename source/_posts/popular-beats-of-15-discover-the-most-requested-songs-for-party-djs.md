@@ -1,7 +1,7 @@
 ---
 title: "Popular Beats of '15: Discover the Most-Requested Songs for Party DJs!"
-date: 2024-12-08T00:21:32.800Z
-updated: 2024-12-14T17:43:28.756Z
+date: 2024-12-18T07:48:45.472Z
+updated: 2024-12-24T00:23:26.107Z
 tags:
   - product
 categories:
@@ -31,7 +31,7 @@ Personally, I always get a kick out of these charts. I like to **dig through my 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Top 20 From The “Top 200 Requested Songs Of 2015”
@@ -62,7 +62,7 @@ Personally, I always get a kick out of these charts. I like to **dig through my 
 [View All 200 Most Requested Songs Of 2015](http://www.djintelligence.com/charts/DJIntelligenceMostRequested2015.pdf)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -84,24 +84,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/01/top200requestedsongs2015-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-revolutionize-your-laptop-experience-innovative-methods-for-screen-capture/"><u>[New] In 2024, Revolutionize Your Laptop Experience Innovative Methods for Screen Capture</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-lgs-gaming-monitor-review-the-future-of-4k-freesync-for-2024/"><u>[Updated] LG’s Gaming Monitor Review - The Future of 4K FreeSync for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-seamless-access-track-down-your-latest-facebook-watches/"><u>[Updated] Seamless Access Track Down Your Latest Facebook Watches</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-essentials-of-crafting-crystal-clear-vhs-graphics-online/"><u>[Updated] The Essentials of Crafting Crystal-Clear VHS Graphics Online</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/gmail-cleanup-how-to-empty-entire-inbox-using-gmail-mobile-application/"><u>Gmail Cleanup: How to Empty Entire Inbox Using Gmail Mobile Application</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-resolution-bmw-e60-m5-desktop-wallpaper-collection-premium-quality-graphics-by-yl-computing/"><u>High-Resolution BMW E60 M5 Desktop Wallpaper Collection - Premium Quality Graphics by YL Computing</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-guide-to-iphoneandroid-photo-editors/"><u>In 2024, Ultimate Guide to iPhone/Android Photo Editors</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722975197898-instant-access-samsung-m2070fw-drivers-secure-download-now/"><u>Instant Access: Samsung M2070FW Drivers - Secure Download Now</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mastering-disk-maintenance-efficient-techniques-for-clearing-your-hard-drive-advice-by-yl-software-professionals/"><u>Mastering Disk Maintenance: Efficient Techniques for Clearing Your Hard Drive - Advice by YL Software Professionals</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mastering-the-art-of-troubleshooting-computer-hardware-insights-from-yl-computing-experts/"><u>Mastering the Art of Troubleshooting Computer Hardware - Insights From YL Computing Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/optimizing-your-pcs-energy-consumption-for-enhanced-performance-expert-tips-from-yl-computing/"><u>Optimizing Your PC's Energy Consumption for Enhanced Performance - Expert Tips From YL Computing</u></a></li>
-<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-motorola-g24-power-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Motorola G24 Power, is it possible?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-video-card-problems-on-windows-expert-guide-by-yl-computing/"><u>Resolving Video Card Problems on Windows - Expert Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/revolutionizing-beats-with-predictive-conceptual-data-journalism-pcdj-beyond-the-traditional-songbook-methods/"><u>Revolutionizing Beats with Predictive Conceptual Data Journalism (PCDJ) - Beyond the Traditional Songbook Methods</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/securing-data-integrity-methods-to-lock-files-against-alterations-in-windows-environments-guidance-from-yl-software-experts/"><u>Securing Data Integrity: Methods to Lock Files Against Alterations in Windows Environments - Guidance From YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/simplified-instructions-for-configuring-cron-jobs-using-yl-tools/"><u>Simplified Instructions for Configuring Cron Jobs Using YL Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-strategies-for-crypto-investment-by-yl-software-experts/"><u>Step-by-Step Strategies for Crypto Investment by YL Software Experts</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/the-cream-of-the-crop-top-android-apps-on-google-play/"><u>The Cream of the Crop Top Android Apps on Google Play</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-choreograph-cheeky-comics-via-giphy/"><u>[New] Choreograph Cheeky Comics via Giphy</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-from-airwaves-to-files-online-audio-capture-basics/"><u>[Updated] In 2024, From Airwaves to Files Online Audio Capture Basics</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-a-detailed-tutorial-on-how-to-use-green-screen-in-kinemaster/"><u>2024 Approved A Detailed Tutorial On How To Use Green Screen In Kinemaster</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-nokia-c300-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Nokia C300 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://win-data.techidaily.com/comprehensive-insights-on-identified-risks-in-windows-defender-your-guide-yl-computing/"><u>Comprehensive Insights on Identified Risks in Windows Defender: Your Guide - YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/discover-the-new-features-in-pcdjs-lyrx-update-v1601-revolutionize-your-karaoke-sessions/"><u>Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/experiencing-the-extraordinary-how-a-3k-dell-gaming-rig-turned-expectations-upside-down/"><u>Experiencing the Extraordinary: How a $3K Dell Gaming Rig Turned Expectations Upside Down</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/identifying-and-utilizing-specific-keywords-for-personalized-pages-in-flipbuilt-software/"><u>Identifying and Utilizing Specific Keywords for Personalized Pages in FlipBuilt Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/identifying-issues-with-your-power-supply-unit-a-comprehensive-guide-by-yl-computing/"><u>Identifying Issues with Your Power Supply Unit: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/inside-look-at-revolutionary-features-for-coming-soon-pioneer-djs-dexterity-dex-4-software-update/"><u>Inside Look at Revolutionary Features for Coming-Soon Pioneer DJ's Dexterity (DEX) 4 Software Update</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-gaming-woes-resolved-repairing-compromised-game-archives/"><u>PC Gaming Woes Resolved: Repairing Compromised Game Archives</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/recognizing-when-your-computer-requires-an-upgrade-is-it-time-for-a-new-graphics-card-insights-by-yl-computing/"><u>Recognizing When Your Computer Requires an Upgrade: Is It Time for a New Graphics Card? - Insights by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-hardware-issues-in-windows-os-a-step-by-step-tutorial-from-yl-software-experts/"><u>Resolving Hardware Issues in Windows OS: A Step-by-Step Tutorial From YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-printing-problems-a-step-by-step-guide-by-yl-software-experts/"><u>Resolving Printing Problems: A Step-by-Step Guide by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-new-user-profiles-a-step-by-step-guide-with-yl-computing-solutions/"><u>Setting Up New User Profiles: A Step-by-Step Guide with YL Computing Solutions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/shot-securement-keeping-cameras-still-on-arms-only-for-2024/"><u>Shot Securement Keeping Cameras Still on Arms Only for 2024</u></a></li>
+<li><a href="https://win-info.techidaily.com/step-by-step-guide-setting-up-your-pcs-network-configurations-with-ease-tips-from-yl-computing/"><u>Step-by-Step Guide: Setting Up Your PC's Network Configurations with Ease - Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/yl-computings-elite-ferrari-emblem-hd-wallpapers-for-ultimate-display-flair/"><u>YL Computing's Elite Ferrari Emblem HD Wallpapers for Ultimate Display Flair</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/yl-computings-ultimate-troubleshooting-for-easier-software-updates-learn-how-today/"><u>YL Computing's Ultimate Troubleshooting for Easier Software Updates – Learn How Today!</u></a></li>
 </ul></div>
 

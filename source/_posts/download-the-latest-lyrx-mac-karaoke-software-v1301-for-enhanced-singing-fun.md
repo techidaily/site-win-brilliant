@@ -1,7 +1,7 @@
 ---
 title: Download the Latest LYRX Mac Karaoke Software (v1.3.0.1) for Enhanced Singing Fun!
-date: 2024-12-13T00:23:22.646Z
-updated: 2024-12-15T03:40:43.365Z
+date: 2024-12-19T02:08:51.923Z
+updated: 2024-12-23T17:36:30.300Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ _**Note:** Another update is scheduled soon for LYRX that includes new features.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.3.0.1
@@ -41,7 +41,7 @@ _**Note:** Another update is scheduled soon for LYRX that includes new features.
 _Have questions about the latest 1.3.0.1 version of our **karaoke software for MAC**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -63,20 +63,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/11/lyrx-update-v1301.jpg?fit=
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/he-art-of-amplifying-popularity-on-youtube/"><u>[New] The Art of Amplifying Popularity on YouTube</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-art-of-visual-storytelling-with-iphone-xs-new-lens/"><u>[New] The Art of Visual Storytelling with iPhone X's New Lens</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-digital-delights-8-most-watched-movies/"><u>[Updated] 2024 Approved Digital Delights 8 Most Watched Movies</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-how-to-capture-computer-screens-and-webcam-video-simultaneously-on-windows10/"><u>[Updated] In 2024, How to Capture Computer Screens and Webcam Video Simultaneously on Windows10?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-comprehensive-guide-to-identifying-and-resolving-computer-hardware-issues-tools-and-techniques/"><u>1. Comprehensive Guide to Identifying and Resolving Computer Hardware Issues: Tools & Techniques</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-create-memorable-videos-with-the-right-thumbnail-font/"><u>2024 Approved Create Memorable Videos with the Right Thumbnail Font</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-your-picture-at-a-glance-quick-steps-for-saving-social-media-pics/"><u>2024 Approved Your Picture at a Glance Quick Steps for Saving Social Media Pics</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/accelerate-your-laptop-with-efficient-disk-management-expert-strategies-from-yl-software/"><u>Accelerate Your Laptop with Efficient Disk Management: Expert Strategies From YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-a-latest-update-on-your-pcs-windows-os-influence-its-hardware-speed-expertise-from-yl-software/"><u>Can a Latest Update on Your PC's Windows OS Influence Its Hardware Speed? - Expertise From YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-swiftly-open-control-panel-on-windows-11-expert-tips-by-yl-software/"><u>How to Swiftly Open Control Panel on Windows 11: Expert Tips by YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/is-an-impaired-graphics-card-cooler-responsible-for-computer-overheating-risks/"><u>Is an Impaired Graphics Card Cooler Responsible for Computer Overheating Risks?</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/seamless-integration-of-chatgpt-in-your-daily-routine-a-guide-for-android-and-iphone-devices/"><u>Seamless Integration of ChatGPT in Your Daily Routine – A Guide for Android and iPhone Devices</u></a></li>
-<li><a href="https://win11.techidaily.com/simple-steps-to-restarting-windows-explorer/"><u>Simple Steps to Restarting Windows Explorer</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-tips-for-broken-sound-cards-by-yl-software-experts/"><u>Troubleshooting Tips for Broken Sound Cards by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-security-essentials-how-to-lock-down-files-with-passwords-using-yls-simple-method/"><u>Windows Security Essentials: How to Lock Down Files with Passwords Using YL's Simple Method</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-achieve-pristine-sound-in-recordings-free-tutorial-paid-tools-for-2024/"><u>[New] Achieve Pristine Sound in Recordings (Free Tutorial, Paid Tools) for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-image-browsing-the-ultimate-guide-to-pexels-wonders/"><u>[New] Mastering Image Browsing The Ultimate Guide to Pexels Wonders</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-how-to-use-snap-camera-on-zoom/"><u>[Updated] In 2024, How to Use Snap Camera on Zoom?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-scoping-out-spots-where-to-meet-youtube-brand-deals-for-2024/"><u>[Updated] Scoping Out Spots Where to Meet YouTube Brand Deals for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-how-to-record-skype-meeting-on-windows-and-mac-skype-for-business/"><u>2024 Approved How to Record Skype Meeting on Windows and Mac | Skype for Business</u></a></li>
+<li><a href="https://games-able.techidaily.com/enhancing-gameplay-sd-card-for-steam-deck/"><u>Enhancing Gameplay: SD Card for Steam Deck</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-fix-an-unresponsive-printer-quickly-and-effectively-yl-software-expertise-inside/"><u>How to Fix an Unresponsive Printer Quickly & Effectively, YL Software Expertise Inside!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-set-a-new-standard-printer-in-windows-tips-from-yl-software-experts/"><u>How To Set a New Standard Printer In Windows: Tips From YL Software Experts</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/linux-on-chrome-os-a-step-by-step-installation-guide-updated-2023/"><u>Linux on Chrome OS A Step-by-Step Installation Guide (Updated 2023)</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-file-duplication-a-step-by-step-guide-to-copy-and-paste-on-your-windows-pc-tech-expertise-by-yl/"><u>Mastering File Duplication: A Step-by-Step Guide to Copy and Paste on Your Windows PC - Tech Expertise by YL</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/revealing-secrets-in-compressed-formats-how-to-access-zip-archive-content-with-yl-tech-advice/"><u>Revealing Secrets in Compressed Formats: How to Access Zip Archive Content with YL Tech Advice</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-methods-for-identifying-cpu-mistakes-expert-tips-from-yl-computing/"><u>Top Methods for Identifying CPU Mistakes: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-the-rise-to-power-a-look-at-how-the-sui-empire-gained-dominance-over-china-yl-software/"><u>Understanding the Rise to Power: A Look at How the Sui Empire Gained Dominance Over China – YL Software</u></a></li>
 </ul></div>
 

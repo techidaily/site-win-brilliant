@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX 3.6.1 Public Beta Version Now - PCDJ
-date: 2024-12-11T23:48:26.869Z
-updated: 2024-12-14T17:05:36.643Z
+date: 2024-12-16T22:33:21.454Z
+updated: 2024-12-24T03:36:40.189Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ _**NOTE:** Since version 3.6.1 is a public beta and [DJ software](https://tools.
 _Have questions about DEX 3.6.1 DJ, **video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,19 +60,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-innovative-ways-to-document-your-virtual-sessions-mac-and-pc-edition/"><u>[Updated] Innovative Ways to Document Your Virtual Sessions - Mac & PC Edition</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/advanced-user-friendly-internal-controllers-replace-frustrating-outdated-third-party-options/"><u>Advanced, User-Friendly Internal Controllers Replace Frustrating Outdated Third-Party Options</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/bitcoins-metamorphosis-into-a-cross-asset-hub-explained-expertise-from-yl-software-team/"><u>Bitcoin's Metamorphosis Into a Cross-Asset Hub Explained – Expertise From YL Software Team</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-google-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Google</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/choosing-the-right-backup-strategies-for-effective-data-restoration-insights-from-yl-computing/"><u>Choosing the Right Backup Strategies for Effective Data Restoration - Insights From YL Computing</u></a></li>
-<li><a href="https://os-tips.techidaily.com/expert-tips-on-extracting-photographs-from-an-itunes-system-restore/"><u>Expert Tips on Extracting Photographs From an iTunes System Restore</u></a></li>
-<li><a href="https://app-tips.techidaily.com/how-artificeinvents-faster-software-development-cycles-and-the-complexities-behind-assessing-its-pace-as-reported-by-zdnet/"><u>How Artificeinvents Faster Software Development Cycles & The Complexities Behind Assessing Its Pace, as Reported by ZDNet</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/how-to-fix-windows-cannot-be-installed-on-an-mbr-disk-a-guide-for-windows-11-users/"><u>How to Fix 'Windows Cannot Be Installed on an MBR Disk': A Guide for Windows 11 Users</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/htc-vive-unveiled-mastering-your-3d-world-for-2024/"><u>HTC Vive Unveiled Mastering Your 3D World for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expert-strategies-for-audio-smoothness/"><u>In 2024, Expert Strategies for Audio Smoothness</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/investigating-the-causes-of-excessive-noise-from-your-pcs-cooling-fan-a-guide-by-yl-computing/"><u>Investigating the Causes of Excessive Noise From Your PC's Cooling Fan - A Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-to-picking-your-ideal-laptop-with-insights-from-yl-computing-professionals/"><u>Ultimate Guide to Picking Your Ideal Laptop with Insights From YL Computing Professionals</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-mastering-file-recovery-techniques-on-windows-yl-computing/"><u>Ultimate Guide: Mastering File Recovery Techniques on Windows - YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unraveling-the-mystery-behind-a-blurry-display-exploring-key-reasons-for-lcd-issues-in-your-window-laptop-insights-by-yl-tech/"><u>Unraveling the Mystery Behind a Blurry Display: Exploring Key Reasons for LCD Issues in Your Window Laptop - Insights by YL Tech</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xplore-the-past-study-better-student-approved-historical-youtube-channels/"><u>[New] Explore the Past, Study Better Student-Approved Historical YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-discovering-all-in-youtube-shorts-guide-for-2024/"><u>[Updated] Discovering All in YouTube Shorts Guide for 2024</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/achieve-superior-visual-experience-transforming-your-videos-into-premium-quality-dvd-format/"><u>Achieve Superior Visual Experience: Transforming Your Videos Into Premium Quality DVD Format</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/core-concepts-in-moving-graphic-artistry/"><u>Core Concepts in Moving Graphic Artistry</u></a></li>
+<li><a href="https://fox-links.techidaily.com/enhancing-dialogue-guidelines-for-subscriber-relations/"><u>Enhancing Dialogue Guidelines for Subscriber Relations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-samsung-galaxy-m54-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Samsung Galaxy M54 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-twist-techniques-for-tailoring-your-photos-on-the-fly/"><u>Insta-Twist Techniques for Tailoring Your Photos on the Fly</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/jin-yuuichis-stunning-backdrops-and-digital-art-premium-wallpaper-collection-by-yl-computing/"><u>Jin Yuuichis Stunning Backdrops & Digital Art: Premium Wallpaper Collection by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mouse-and-trackpad-configuration-a-step-by-step-guide-from-yl-computing/"><u>Mouse & Trackpad Configuration: A Step-by-Step Guide From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-your-gpu-drivers-troubles-expert-tips-from-yl-computings-best-practices/"><u>Resolving Your GPU Drivers Troubles: Expert Tips From YL Computing's Best Practices</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/safeguarding-your-investments-how-to-recognize-and-dodge-scams-within-the-world-of-crypto-by-yl-software-experts/"><u>Safeguarding Your Investments: How to Recognize and Dodge Scams Within the World of Crypto, by YL Software Experts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-google-pixel-8-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Google Pixel 8 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-unresponsive-scanner-issues-a-step-by-step-guide-from-yl-computing/"><u>Solving Unresponsive Scanner Issues: A Step-by-Step Guide From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/the-ultimate-tutorial-on-changing-names-for-your-avi-videos-by-yl-computing/"><u>The Ultimate Tutorial on Changing Names for Your .avi Videos by YL Computing</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-solutions-how-to-restore-functionality-in-non-responsive-pc-speakers/"><u>Ultimate Solutions: How to Restore Functionality in Non-Responsive PC Speakers</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unveiling-confucian-influence-the-impact-on-chinese-society-during-the-qing-era-explored-by-yl-technologies/"><u>Unveiling Confucian Influence: The Impact on Chinese Society During the Qing Era - Explored by YL Technologies</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-tenth-user-registration-walkthrough-tips-and-tricks-from-the-experts-at-yl-computing/"><u>Windows Tenth User Registration Walkthrough - Tips and Tricks From the Experts at YL Computing</u></a></li>
 </ul></div>
 
