@@ -1,7 +1,7 @@
 ---
 title: Discover How to Inspect File Attributes on Your PC Using Windows - Tips by YL Computing
-date: 2024-12-18T02:20:57.069Z
-updated: 2024-12-23T19:18:07.487Z
+date: 2024-12-25T19:42:04.073Z
+updated: 2024-12-29T17:28:01.016Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,16 +56,14 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-camera-essentials-for-rookie-filmmakers/"><u>[New] Camera Essentials for Rookie Filmmakers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-strategy-for-developing-and-managing-youtube-collaborations/"><u>[New] In 2024, The Ultimate Strategy for Developing & Managing YouTube Collaborations</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-mobile-focus-top-gimbal-systems-for-dynamic-shooting/"><u>[New] Mobile Focus Top Gimbal Systems for Dynamic Shooting</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-the-unforeseen-shutdown-of-nvidias-geforce-experience-platform/"><u>Fixing the Unforeseen Shutdown of NVIDIA's GeForce Experience Platform</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-about-vivo-v27-pro-frp-bypass-by-drfone-android/"><u>In 2024, About Vivo V27 Pro FRP Bypass</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mouse-and-trackpad-configuration-a-step-by-step-guide-from-yl-computing/"><u>Mouse & Trackpad Configuration: A Step-by-Step Guide From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-your-gpu-drivers-troubles-expert-tips-from-yl-computings-best-practices/"><u>Resolving Your GPU Drivers Troubles: Expert Tips From YL Computing's Best Practices</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/the-ultimate-tutorial-on-changing-names-for-your-avi-videos-by-yl-computing/"><u>The Ultimate Tutorial on Changing Names for Your .avi Videos by YL Computing</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-iphone-11-pro-max-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and iPhone 11 Pro Max</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-tenth-user-registration-walkthrough-tips-and-tricks-from-the-experts-at-yl-computing/"><u>Windows Tenth User Registration Walkthrough - Tips and Tricks From the Experts at YL Computing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-samsung-outdone-top-cameras-eclipsing-the-gear-360/"><u>[New] In 2024, Samsung Outdone Top Cameras Eclipsing the Gear 360</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-psd-mastery-journey-unlimited-complimentary-texts/"><u>[New] PSD Mastery Journey Unlimited Complimentary Texts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-seamless-video-playback-a-facebook-feature-explanation/"><u>[New] Seamless Video Playback A Facebook Feature Explanation</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-comprehensive-guide-to-identifying-and-resolving-computer-hardware-issues-tools-and-techniques/"><u>1. Comprehensive Guide to Identifying and Resolving Computer Hardware Issues: Tools & Techniques</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-a-latest-update-on-your-pcs-windows-os-influence-its-hardware-speed-expertise-from-yl-software/"><u>Can a Latest Update on Your PC's Windows OS Influence Its Hardware Speed? - Expertise From YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-swiftly-open-control-panel-on-windows-11-expert-tips-by-yl-software/"><u>How to Swiftly Open Control Panel on Windows 11: Expert Tips by YL Software</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/perfecting-sims-4-live-action-for-videographers-for-2024/"><u>Perfecting Sims 4 Live Action for Videographers for 2024</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/protection-complet-du-sys-par-le-biais-de-backup-guide-facile-5-etapes/"><u>Protection Complet Du Sys Par Le Biais De Backup: Guide Facile 5 Étapes</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-security-essentials-how-to-lock-down-files-with-passwords-using-yls-simple-method/"><u>Windows Security Essentials: How to Lock Down Files with Passwords Using YL's Simple Method</u></a></li>
 </ul></div>
 

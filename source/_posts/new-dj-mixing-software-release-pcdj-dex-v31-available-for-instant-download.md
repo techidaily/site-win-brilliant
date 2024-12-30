@@ -1,7 +1,7 @@
 ---
 title: "New DJ Mixing Software Release: PCDJ DeX v3.1, Available for Instant Download!"
-date: 2024-12-23T10:47:35.062Z
-updated: 2024-12-23T22:21:53.019Z
+date: 2024-12-22T16:01:09.951Z
+updated: 2024-12-30T03:02:41.625Z
 tags:
   - product
 categories:
@@ -62,7 +62,7 @@ DirectX/ASIO compatible multichannel soundcard (Mac: multichannel Core Audio sou
 ##### VIDEO DEMONSTRATION OF THE NEW “LIST MODE” INCLUDED IN THE DEX 3.1 UPDATE
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -84,18 +84,17 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/11/dex31update-blogcoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-legal-implications-and-tips-when-archiving-whatsapp-call-recordings-for-2024/"><u>[New] Legal Implications & Tips When Archiving WhatsApp Call Recordings for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-collage-creation-step-by-step-tutorial/"><u>[Updated] Collage Creation Step-by-Step Tutorial</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/accelerating-or-slowing-down-video-playback-on-insta-stories/"><u>Accelerating or Slowing Down Video Playback on Insta Stories</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-solutions-for-common-windows-programming-errors-guidance-by-yl-software-experts/"><u>Easy Solutions for Common Windows Programming Errors - Guidance by YL Software Experts</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-nokia-130-music-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Nokia 130 Music Quickly | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/fusing-artificial-intelligence-with-communication-chatgpt-for-whatsapp-help/"><u>Fusing Artificial Intelligence with Communication: ChatGPT for WhatsApp Help</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-honor-play-7t-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Honor Play 7T Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-without-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 11 Without Passcode?</u></a></li>
-<li><a href="https://change-location.techidaily.com/ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/navigating-graphics-glitches-a-comprehensive-guide-to-fix-display-problems-yl-software-experts/"><u>Navigating Graphics Glitches: A Comprehensive Guide to Fix Display Problems - YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/signs-of-failure-in-your-gpu-tips-by-yl-software-experts/"><u>Signs of Failure in Your GPU: Tips by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-unresponsive-scanner-issues-a-step-by-step-guide-from-yl-computing/"><u>Solving Unresponsive Scanner Issues: A Step-by-Step Guide From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-dex-31002-update-explore-new-features-with-pcdj-dj-software/"><u>Unveiling DEX 3.10.0.2 Update: Explore New Features with PCDJ DJ Software!</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-5-free-screen-recorder-extensions-for-chromebooks/"><u>[New] In 2024, TOP 5 Free Screen Recorder Extensions for Chromebooks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-earning-blueprint-achieving-bank-balances-for-2024/"><u>[Updated] YouTube Earning Blueprint Achieving Bank Balances for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-comprehensive-guide-to-identifying-and-resolving-computer-hardware-issues-tools-and-techniques/"><u>1. Comprehensive Guide to Identifying and Resolving Computer Hardware Issues: Tools & Techniques</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-a-latest-update-on-your-pcs-windows-os-influence-its-hardware-speed-expertise-from-yl-software/"><u>Can a Latest Update on Your PC's Windows OS Influence Its Hardware Speed? - Expertise From YL Software</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-gone-touchpad-arrow-in-windows-11-a-step-by-step-tutorial/"><u>Fixing the Gone Touchpad Arrow in Windows 11 - A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-8-plus-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 8 Plus to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-oppo-find-n3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-swiftly-open-control-panel-on-windows-11-expert-tips-by-yl-software/"><u>How to Swiftly Open Control Panel on Windows 11: Expert Tips by YL Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ating-video-uploads-on-youtube-a-comprehensive-tutorial/"><u>Navigating Video Uploads on YouTube A Comprehensive Tutorial</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/precision-and-balance-unveiled-in-depth-review-of-twelve-souths-compact-compass-pro/"><u>Precision and Balance Unveiled - In-Depth Review of Twelve South's Compact Compass Pro</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-the-easiest-way-to-edit-flv-files-on-windows-8-expert-tips-and-tools/"><u>Updated 2024 Approved The Easiest Way to Edit FLV Files on Windows 8 Expert Tips and Tools</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-security-essentials-how-to-lock-down-files-with-passwords-using-yls-simple-method/"><u>Windows Security Essentials: How to Lock Down Files with Passwords Using YL's Simple Method</u></a></li>
 </ul></div>
 

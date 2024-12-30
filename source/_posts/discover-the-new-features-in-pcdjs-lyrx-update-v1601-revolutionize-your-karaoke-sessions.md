@@ -1,7 +1,7 @@
 ---
 title: Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!
-date: 2024-12-23T10:03:20.509Z
-updated: 2024-12-24T13:29:16.491Z
+date: 2024-12-23T19:05:30.958Z
+updated: 2024-12-29T22:48:52.747Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8a38e69f6bb6d23740b2b061d8fc927f2b1d57e63
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.2 of LYRX karaoke software is ready for download!
@@ -31,7 +31,7 @@ You can test software all you want internally, and iron out issues with your bet
 ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrx.png?fit=300%2C210&ssl=1 "LYRX 1.6.0.2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Not only does the free 1.6.0.2 LYRX update address the reported problems, we were able to apply extensive under-the-hood optimizations and performance improvements. The updates should be noticeable, to the extent your MAC or PC will run cooler than with prior versions.
@@ -45,7 +45,7 @@ Again, we appreciate all the tremendous and extensive feedback we’ve received 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.2
@@ -63,7 +63,7 @@ If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download fro
 _Have questions about the latest 1.6.0.2 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,19 +85,16 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover-1.jpg?fit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-foremost-8-titans-of-4k-blu-ray-technology/"><u>[New] Foremost 8 Titans of 4K Blu-Ray Technology</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-secure-your-digital-footprints-with-tiktok-video-backup/"><u>[New] In 2024, Secure Your Digital Footprints with TikTok Video Backup</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-premier-playwriting-for-podcasts-and-radios/"><u>[New] Premier Playwriting for Podcasts & Radios</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-breaking-boundaries-custom-font-use-in-after-effects-for-2024/"><u>[Updated] Breaking Boundaries Custom Font Use in After Effects for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-thumbnail-wizardry-top-8-tools-to-boost-view-counts/"><u>[Updated] Thumbnail Wizardry Top 8 Tools to Boost View Counts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-steps-removing-applications-from-your-pc-insights-by-yl-computing/"><u>Easy Steps: Removing Applications From Your PC - Insights by YL Computing</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/effective-techniques-to-correct-unauthorized-web-page-errors-http-401/"><u>Effective Techniques to Correct 'Unauthorized' Web Page Errors (HTTP 401)</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effortless-repairs-for-magic-mouse-touch-sensitivity-issues/"><u>Effortless Repairs for Magic Mouse Touch Sensitivity Issues</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/explore-digital-art-by-angie-yonaga-premium-wallpapers-and-backgrounds-for-enthusiasts-powered-by-yl-software/"><u>Explore Digital Art by Angie Yonaga: Premium Wallpapers and Backgrounds for Enthusiasts – Powered by YL Software</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fingerprint-reader-unavailable-in-windows-os/"><u>Fingerprint Reader: Unavailable in Windows OS</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-apple-iphone-11-pro-and-browser-drfone-by-drfone-virtual-ios/"><u>In 2024, Prevent Cross-Site Tracking on Apple iPhone 11 Pro and Browser | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/nathan-heywood-collection-premium-wallpapers-and-banners-created-by-yl-computing/"><u>Nathan Heywood Collection: Premium Wallpapers & Banners - Created by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/secure-your-investments-expert-guide-on-safe-cryptocurrency-strategies-by-yl-computing/"><u>Secure Your Investments: Expert Guide on Safe Cryptocurrency Strategies by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-your-pcs-silent-issue-troubleshooting-a-non-responsive-sound-card-expert-advice-from-yl-computing/"><u>Solving Your PC's Silent Issue: Troubleshooting a Non-Responsive Sound Card - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-video-ideas-for-maximum-impact/"><u>[New] Cutting-Edge Video Ideas for Maximum Impact</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fb-flicks-grabber-tool/"><u>[New] In 2024, FB Flicks Grabber Tool</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlock-full-potential-of-zoom-in-windows-10/"><u>[New] Unlock Full Potential of Zoom in Windows 10</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-free-frame-conversion-tweeting-vids-into-animated-gifs/"><u>[Updated] In 2024, Free Frame Conversion Tweeting Vids Into Animated GIFs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unlock-creative-potential-strategic-use-of-strikethrough-for-2024/"><u>[Updated] Unlock Creative Potential Strategic Use of Strikethrough for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-pro-karaoke-program-access-the-latest-beta-version-of-karaoki-perfected-dj-experience/"><u>Download Pro Karaoke Program: Access the Latest Beta Version of Karaoki - Perfected DJ Experience!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/high-resolution-bmw-e60-m5-desktop-wallpaper-collection-premium-quality-graphics-by-yl-computing/"><u>High-Resolution BMW E60 M5 Desktop Wallpaper Collection - Premium Quality Graphics by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/maximize-computer-speed-a-step-by-step-guide-from-yl-software-experts/"><u>Maximize Computer Speed: A Step-by-Step Guide From YL Software Experts</u></a></li>
+<li><a href="https://techidaily.com/samsung-galaxy-xcover-7-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Samsung Galaxy XCover 7 support - Forgotten screen lock.</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/simplified-instructions-for-configuring-cron-jobs-using-yl-tools/"><u>Simplified Instructions for Configuring Cron Jobs Using YL Tools</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-audio-issues-how-to-fix-a-non-functional-sound-card-expert-advice-from-yl-computing/"><u>Troubleshooting Audio Issues: How to Fix a Non-Functional Sound Card - Expert Advice From YL Computing</u></a></li>
 </ul></div>
 

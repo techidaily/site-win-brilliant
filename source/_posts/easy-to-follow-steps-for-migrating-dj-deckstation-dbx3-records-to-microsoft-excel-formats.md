@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2024-12-18T21:18:11.772Z
-updated: 2024-12-23T21:52:48.508Z
+date: 2024-12-22T19:41:28.723Z
+updated: 2024-12-29T20:13:45.546Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,24 +46,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-foremost-strategies-for-stream-and-store-game-moments-for-2024/"><u>[New] Foremost Strategies for Stream and Store Game Moments for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-free-yourself-from-paywalls-with-these-subtitle-getters-for-2024/"><u>[Updated] Free Yourself From Paywalls with These Subtitle Getters for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-uav-connoisseurs-guide-to-essential-equipment/"><u>[Updated] In 2024, The UAV Connoisseur's Guide to Essential Equipment</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-resonance-and-rhythm-guide-to-downloading-vintage-ringtones/"><u>2024 Approved Resonance and Rhythm Guide to Downloading Vintage Ringtones</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/advanced-windows-djing-mastering-the-art-of-wasapi-over-directsoundasio-for-optimal-audio-performance/"><u>Advanced Windows DJing: Mastering the Art of WASAPI Over DirectSound/ASIO for Optimal Audio Performance</u></a></li>
-<li><a href="https://fox-links.techidaily.com/cloud-costs-top-picks-for-value-for-2024/"><u>Cloud Costs Top Picks for Value for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/cost-saving-strategies-for-mobile-disc-jockeys-expert-price-guide/"><u>Cost-Saving Strategies for Mobile Disc Jockeys: Expert Price Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/diagnosing-the-mystery-understanding-speaker-pop-noises-insights-by-yl-computing/"><u>Diagnosing the Mystery: Understanding Speaker Pop Noises - Insights by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/diagnostic-mastery-top-tools-for-tackling-computer-problems-efficiently-insights-from-yl-computings-software-expertise/"><u>Diagnostic Mastery: Top Tools for Tackling Computer Problems Efficiently – Insights From YL Computing's Software Expertise</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/hd-warrior-themed-wallpapers-and-desktop-backgrounds-high-quality-imagery-by-yl-computing/"><u>HD Warrior Themed Wallpapers & Desktop Backgrounds - High-Quality Imagery by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-resolution-apple-hd-wallpaper-collection-premium-graphics-and-imagery-yl-computings-visual-selection/"><u>High-Resolution Apple HD Wallpaper Collection: Premium Graphics & Imagery - YL Computing's Visual Selection</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Oppo A1 5G? | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-essential-list-top-10-costless-online-daw-options-to-explore/"><u>New In 2024, Essential List Top 10 Costless Online DAW Options to Explore</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/retro-inspired-ford-collection-premium-visual-graphics-by-yl-software-for-desktop-and-mobile-use/"><u>Retro-Inspired Ford Collection - Premium Visual Graphics by YL Software for Desktop and Mobile Use</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-your-scanners-connection-problems-a-step-by-step-guide-yl-computing/"><u>Solving Your Scanner's Connection Problems: A Step-by-Step Guide - YL Computing</u></a></li>
-<li><a href="https://facebook.techidaily.com/spark-conversation-social-media-mastery-with-ripl/"><u>Spark Conversation: Social Media Mastery with Ripl</u></a></li>
-<li><a href="https://discover-help.techidaily.com/troubleshooting-dvd-playback-issues-in-streamclip-across-windows-and-mac-os/"><u>Troubleshooting DVD Playback Issues in StreamClip Across Windows and Mac OS</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-ram-issues-on-windows-machines-with-tips-from-yl-software-experts/"><u>Troubleshooting RAM Issues on Windows Machines with Tips From YL Software Experts</u></a></li>
-<li><a href="https://win11.techidaily.com/why-gamers-should-trust-windows-vision-and-performance/"><u>Why Gamers Should Trust Windows' Vision and Performance</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-guide-to-avi-to-gif-transformation-using-filmora-for-both-oses-for-2024/"><u>[New] The Ultimate Guide to AVI-to-GIF Transformation Using Filmora for Both OSes for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-skyrocket-your-youtube-traffic-with-effective-outros/"><u>[Updated] 2024 Approved Skyrocket Your YouTube Traffic with Effective Outros</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-thrifty-pc-recording-utilities/"><u>[Updated] In 2024, Thrifty PC Recording Utilities</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-creative-music-videos-a-list-of-15-youtube-projects/"><u>2024 Approved Creative Music Videos A List of 15 YouTube Projects</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/accessing-sound-hardware-via-control-panel-a-guide-from-yl-computing/"><u>Accessing Sound Hardware via Control Panel: A Guide From YL Computing</u></a></li>
+<li><a href="https://win-able.techidaily.com/buy-the-amazing-wonderfox-app-top-of-the-line-video-to-gif-maker/"><u>Buy the Amazing WonderFox App: Top-of-the-Line Video to GIF Maker!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-the-latest-lyrx-mac-karaoke-software-v1301-for-enhanced-singing-fun/"><u>Download the Latest LYRX Mac Karaoke Software (v1.3.0.1) for Enhanced Singing Fun!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easily-obtain-and-install-the-latest-dell-d3100-printer-software-today/"><u>Easily Obtain and Install the Latest Dell D3100 Printer Software Today</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/epic-vehicle-pics-from-tron-legacy-stunning-visuals-and-wallpapers-curated-by-yl-software/"><u>Epic Vehicle Pics From Tron: Legacy - Stunning Visuals and Wallpapers Curated by YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/explore-a-gallery-of-adorable-pixel-art-designs-for-your-space-from-yl-software/"><u>Explore a Gallery of Adorable Pixel Art Designs for Your Space From YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/exploring-key-characteristics-of-distributed-digital-currencies-an-in-depth-guide-by-yl-computing/"><u>Exploring Key Characteristics of Distributed Digital Currencies: An In-Depth Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expressing-affection-our-playlist-with-your-love/"><u>Expressing Affection - Our Playlist with Your Love</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-mini-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 13 mini without Passcode or Face ID</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/persistent-windows-app-issues-why-your-programs-fail-to-stay-running-expert-advice-by-yl-computing/"><u>Persistent Windows App Issues: Why Your Programs Fail to Stay Running - Expert Advice by YL Computing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/vocalvault-critique-of-live-sounds/"><u>VocalVault Critique of Live Sounds</u></a></li>
 </ul></div>
 

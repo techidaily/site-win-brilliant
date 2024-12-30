@@ -1,7 +1,7 @@
 ---
 title: "Popular Beats of '15: Discover the Most-Requested Songs for Party DJs!"
-date: 2024-12-18T07:48:45.472Z
-updated: 2024-12-24T00:23:26.107Z
+date: 2024-12-28T19:46:06.855Z
+updated: 2024-12-29T18:12:53.991Z
 tags:
   - product
 categories:
@@ -31,7 +31,7 @@ Personally, I always get a kick out of these charts. I like to **dig through my 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Top 20 From The “Top 200 Requested Songs Of 2015”
@@ -62,7 +62,7 @@ Personally, I always get a kick out of these charts. I like to **dig through my 
 [View All 200 Most Requested Songs Of 2015](http://www.djintelligence.com/charts/DJIntelligenceMostRequested2015.pdf)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -84,24 +84,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/01/top200requestedsongs2015-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-choreograph-cheeky-comics-via-giphy/"><u>[New] Choreograph Cheeky Comics via Giphy</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-from-airwaves-to-files-online-audio-capture-basics/"><u>[Updated] In 2024, From Airwaves to Files Online Audio Capture Basics</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-a-detailed-tutorial-on-how-to-use-green-screen-in-kinemaster/"><u>2024 Approved A Detailed Tutorial On How To Use Green Screen In Kinemaster</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-nokia-c300-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Nokia C300 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://win-data.techidaily.com/comprehensive-insights-on-identified-risks-in-windows-defender-your-guide-yl-computing/"><u>Comprehensive Insights on Identified Risks in Windows Defender: Your Guide - YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/discover-the-new-features-in-pcdjs-lyrx-update-v1601-revolutionize-your-karaoke-sessions/"><u>Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/experiencing-the-extraordinary-how-a-3k-dell-gaming-rig-turned-expectations-upside-down/"><u>Experiencing the Extraordinary: How a $3K Dell Gaming Rig Turned Expectations Upside Down</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/identifying-and-utilizing-specific-keywords-for-personalized-pages-in-flipbuilt-software/"><u>Identifying and Utilizing Specific Keywords for Personalized Pages in FlipBuilt Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/identifying-issues-with-your-power-supply-unit-a-comprehensive-guide-by-yl-computing/"><u>Identifying Issues with Your Power Supply Unit: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/inside-look-at-revolutionary-features-for-coming-soon-pioneer-djs-dexterity-dex-4-software-update/"><u>Inside Look at Revolutionary Features for Coming-Soon Pioneer DJ's Dexterity (DEX) 4 Software Update</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/pc-gaming-woes-resolved-repairing-compromised-game-archives/"><u>PC Gaming Woes Resolved: Repairing Compromised Game Archives</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/recognizing-when-your-computer-requires-an-upgrade-is-it-time-for-a-new-graphics-card-insights-by-yl-computing/"><u>Recognizing When Your Computer Requires an Upgrade: Is It Time for a New Graphics Card? - Insights by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-hardware-issues-in-windows-os-a-step-by-step-tutorial-from-yl-software-experts/"><u>Resolving Hardware Issues in Windows OS: A Step-by-Step Tutorial From YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-printing-problems-a-step-by-step-guide-by-yl-software-experts/"><u>Resolving Printing Problems: A Step-by-Step Guide by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/setting-up-new-user-profiles-a-step-by-step-guide-with-yl-computing-solutions/"><u>Setting Up New User Profiles: A Step-by-Step Guide with YL Computing Solutions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/shot-securement-keeping-cameras-still-on-arms-only-for-2024/"><u>Shot Securement Keeping Cameras Still on Arms Only for 2024</u></a></li>
-<li><a href="https://win-info.techidaily.com/step-by-step-guide-setting-up-your-pcs-network-configurations-with-ease-tips-from-yl-computing/"><u>Step-by-Step Guide: Setting Up Your PC's Network Configurations with Ease - Tips From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-computings-elite-ferrari-emblem-hd-wallpapers-for-ultimate-display-flair/"><u>YL Computing's Elite Ferrari Emblem HD Wallpapers for Ultimate Display Flair</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-computings-ultimate-troubleshooting-for-easier-software-updates-learn-how-today/"><u>YL Computing's Ultimate Troubleshooting for Easier Software Updates – Learn How Today!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-comprehensive-breakdown-vsco-photography-tools/"><u>[New] 2024 Approved Comprehensive Breakdown VSCO Photography Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-essential-screen-capture-best-mac-apps-reviewed-and-rated-for-2024/"><u>[New] Essential Screen Capture Best Mac Apps Reviewed & Rated for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-revolutionize-iphone-images-turn-them-sideways-and-upside-down/"><u>[Updated] In 2024, Revolutionize iPhone Images Turn Them Sideways & Upside Down</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-comprehensive-guide-to-identifying-and-resolving-computer-hardware-issues-tools-and-techniques/"><u>1. Comprehensive Guide to Identifying and Resolving Computer Hardware Issues: Tools & Techniques</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/achieve-lightning-fast-performance-essential-system-tweaks-by-yl-computing/"><u>Achieve Lightning-Fast Performance: Essential System Tweaks by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-a-latest-update-on-your-pcs-windows-os-influence-its-hardware-speed-expertise-from-yl-software/"><u>Can a Latest Update on Your PC's Windows OS Influence Its Hardware Speed? - Expertise From YL Software</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-quick-cut-channel-sequences/"><u>Crafting Quick-Cut Channel Sequences</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-swiftly-open-control-panel-on-windows-11-expert-tips-by-yl-software/"><u>How to Swiftly Open Control Panel on Windows 11: Expert Tips by YL Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-a-fresh-take-on-viewing-the-new-lg-bp550-review/"><u>In 2024, A Fresh Take on Viewing The New LG BP550 Review</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-craft-a-memorable-youtube-channel-brand-for-more-viewers/"><u>In 2024, Craft a Memorable YouTube Channel Brand for More Viewers</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-your-computers-slow-performance-due-to-hddssd-problems-or-cpu-faults-insights-by-yl-computing/"><u>Is Your Computer's Slow Performance Due to HDD/SSD Problems or CPU Faults? Insights by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/master-hardware-and-sound-configuration-in-windows-a-comprehensive-walkthrough-by-yl-computing-essential-yl-tech-hacks/"><u>Master Hardware and Sound Configuration in Windows: A Comprehensive Walkthrough by YL Computing | Essential YL Tech Hacks</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/master-your-rhythm-top-free-beat-detectors-ready-to-test-for-2024/"><u>Master Your Rhythm – Top Free Beat Detectors Ready to Test for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-remedies-when-your-roku-screen-stays-black-a-comprehensive-guide/"><u>Quick Remedies When Your Roku Screen Stays Black: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/selective-software-optimal-blu-ray-players-free-to-pay-for-2024/"><u>Selective Software Optimal Blu-Ray Players (Free to Pay) for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-security-essentials-how-to-lock-down-files-with-passwords-using-yls-simple-method/"><u>Windows Security Essentials: How to Lock Down Files with Passwords Using YL's Simple Method</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/yl-computing-presents-hauntingly-beautiful-elsa-inspired-goth-graphics-for-your-space/"><u>YL Computing Presents: Hauntingly Beautiful Elsa-Inspired Goth Graphics for Your Space</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software"
-date: 2024-12-21T23:26:47.689Z
-updated: 2024-12-24T06:03:02.532Z
+date: 2024-12-24T21:46:10.752Z
+updated: 2024-12-30T00:07:48.192Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ Unlike macOS Catalina, which did require DEX 3 DJs to wait on upgrading for a fe
 If you haven’t already, [download and try the latest DEX 3.15 DJ software release](https://tools.techidaily.com/pcdj/products/) with macOS Big Sur, now with support for [Beatport LINK and Beatsource LINK](https://tools.techidaily.com/pcdj/products/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,22 +44,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/11/macOS-Big-Sur-800x450.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-essential-steps-for-iphone-7-screen-capture/"><u>[New] 2024 Approved Essential Steps for iPhone 7 Screen Capture</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-chuckles-churner-visual-composer/"><u>[Updated] In 2024, Chuckles Churner Visual Composer</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-sound-fidelity-at-home-mastering-quality-recordings/"><u>[Updated] Sound Fidelity at Home Mastering Quality Recordings</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-visual-vault-verifier-for-2024/"><u>[Updated] Visual Vault Verifier for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/hdr-camera-mastery-essential-buying-tips-for-2024/"><u>HDR Camera Mastery Essential Buying Tips for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-fix-steam-client-local-communication-failure-problem-solved/"><u>How to Fix Steam Client Local Communication Failure - Problem Solved</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-configuring-your-internet-settings-via-windows-control-panel-expert-advice-by-yl-computing/"><u>Step-by-Step Guide: Configuring Your Internet Settings via Windows Control Panel - Expert Advice by YL Computing</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/techniques-to-stabilize-photos-and-movies-on-ios/"><u>Techniques to Stabilize Photos and Movies on iOS</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-the-causes-of-your-pcs-overheating-issues-insights-from-yl-computing/"><u>Understanding the Causes of Your PC's Overheating Issues - Insights From YL Computing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/universal-education-mondly-your-linguistic-ally/"><u>Universal Education: Mondly, Your Linguistic Ally</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/acachha-taraha-sa-wd-elements-daraiva-thavara-shathhata-janakara-panaraparapata-kara-eka-anatha-maraga/"><u>अच्छी तरह से WD Elements ड्राइव द्वारा शोधित जानकारी पुनर्प्राप्त करें: एक अनूठी मार्ग</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-exploring-the-best-ultimate-guide-to-premium-unboxing-youtubers-2024/"><u>[Updated] Exploring the Best Ultimate Guide to Premium Unboxing YouTubers, 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/breaking-down-facebooks-latest-developments/"><u>Breaking Down Facebook's Latest Developments</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/controlling-application-access-on-your-pc-expert-tips-for-using-the-windows-firewall-effectively-yl-software-solutions/"><u>Controlling Application Access on Your PC: Expert Tips for Using the Windows Firewall Effectively - YL Software Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-the-latest-dex-and-red-mod-update-v355-new-features-and-improvements/"><u>Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147404422-elevating-conversation-confidentiality-facebooks-new-direct-messaging-and-call-services-with-end-to-end-encryption/"><u>Elevating Conversation Confidentiality: Facebook’s New Direct Messaging & Call Services with End-to-End Encryption</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/elite-9-directors-cuts-downloader-for-2024/"><u>Elite 9 Directors' Cuts Downloader for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expert-solutions-to-power-up-your-scanner-from-scratch-tips-from-yl-software-professionals/"><u>Expert Solutions to Power Up Your Scanner From Scratch - Tips From YL Software Professionals</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1724766229846-mac/"><u>Macユーザー満足!今年のクリスマス限定、お手頃価格で人気ソフトウェア無料賞品プレゼント開催中！</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/master-the-art-of-file-encryption-simple-password-security-techniques-with-yl-software-insights/"><u>Master the Art of File Encryption: Simple Password Security Techniques with YL Software Insights</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/restoring-integrity-to-windows-11-system-files-tips-and-tricks-from-yl-computing-experts/"><u>Restoring Integrity to Windows 11 System Files: Tips and Tricks From YL Computing Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/sharing-files-and-folders-seamlessly-a-comprehensive-guide-by-yl-computing/"><u>Sharing Files & Folders Seamlessly: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-tutorial-getting-fortnite-up-and-running-on-android-phones/"><u>Step-by-Step Tutorial: Getting Fortnite Up and Running on Android Phones</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722978813528-synaptics-drivers-for-windows-made-easy-free-download-and-update-options/"><u>Synaptics Drivers for Windows Made Easy – Free Download & Update Options</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/transform-your-screen-with-ethereal-supernatural-wallpaper-designs-high-quality-images-and-backgrounds-from-yl-software/"><u>Transform Your Screen with Ethereal Supernatural Wallpaper Designs: High-Quality Images & Backgrounds From YL Software</u></a></li>
+<li><a href="https://fox-links.techidaily.com/vector-graphics-101-overview-of-varieties-and-tools-for-2024/"><u>Vector Graphics 101 Overview of Varieties & Tools for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Tecno Phantom V Fold? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2024-12-22T05:14:42.211Z
-updated: 2024-12-24T10:54:28.106Z
+date: 2024-12-29T02:20:52.014Z
+updated: 2024-12-29T17:37:09.886Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
@@ -59,7 +59,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,20 +81,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-get-smart-with-your-youtube-thumbnails-using-a-mac/"><u>[New] 2024 Approved Get Smart with Your YouTube Thumbnails, Using a Mac</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-captureelite-pro-windows-enhanced-for-2024/"><u>[New] CaptureElite Pro Windows Enhanced for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-complete-stardew-compendium-focus-on-ginger-isle/"><u>[New] The Complete Stardew Compendium Focus on Ginger Isle</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-pinnacle-solution-for-virtual-realms/"><u>[Updated] 2024 Approved Pinnacle Solution for Virtual Realms</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-trending-upward-amplifying-your-youtube-audience/"><u>[Updated] 2024 Approved Trending Upward Amplifying Your YouTube Audience</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/e-identity-a-quick-walkthrough-of-customizing-your-youtube-url-for-2024/"><u>Create Identity A Quick Walkthrough of Customizing Your YouTube Url for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/download-premium-ferrari-california-hd-wallpaper-images-yl-computings-exclusive-design-series/"><u>Download Premium Ferrari California HD Wallpaper Images - YL Computing's Exclusive Design Series</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-combine-mov-files-for-free-5-excellent-options/"><u>New 2024 Approved Combine MOV Files for Free 5 Excellent Options</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/setting-up-family-safety-features-on-your-pc-a-step-by-step-guide-windows-yl-computing/"><u>Setting Up Family Safety Features on Your PC: A Step-by-Step Guide (Windows) - YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-hardware-and-software-problems-a-comprehensive-guide-by-yl-computing/"><u>Solving Hardware & Software Problems: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-navigating-and-opening-file-folders-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Navigating and Opening File Folders on Windows - Tips From YL Computing</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ltimate-handbook-for-youtube-video-creation-for-2024/"><u>The Ultimate Handbook for YouTube Video Creation for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-vivo-y02t-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Vivo Y02T without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/accelerate-your-laptop-with-efficient-disk-management-expert-strategies-from-yl-software/"><u>Accelerate Your Laptop with Efficient Disk Management: Expert Strategies From YL Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-pixel-slate-critical-insights-on-its-complicated-chromeos-ecosystem/"><u>Assessing the Pixel Slate: Critical Insights on Its Complicated ChromeOS Ecosystem</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/decelerate-your-clicking-how-to-curtail-mouse-accel-on-win-11/"><u>Decelerate Your Clicking: How to Curtail Mouse Accel on Win 11</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/eliminating-windows-bsod-correct-wdf-issues/"><u>Eliminating Windows BSOD: Correct WDF Issues</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-googles-communication-tool-the-evolution-of-google-hangouts/"><u>Exploring Google's Communication Tool: The Evolution of Google Hangouts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-can-updating-your-software-and-drivers-boost-your-pcs-performance-insights-from-yl-computing/"><u>How Can Updating Your Software & Drivers Boost Your PC's Performance: Insights From YL Computing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-install-vp9-vp10-and-av1-video-codecs-on-your-windows-10-machine-a-complete-guide/"><u>How to Install VP9, VP10 & AV1 Video Codecs on Your Windows 10 Machine – A Complete Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-an-impaired-graphics-card-cooler-responsible-for-computer-overheating-risks/"><u>Is an Impaired Graphics Card Cooler Responsible for Computer Overheating Risks?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-tips-for-broken-sound-cards-by-yl-software-experts/"><u>Troubleshooting Tips for Broken Sound Cards by YL Software Experts</u></a></li>
 </ul></div>
 

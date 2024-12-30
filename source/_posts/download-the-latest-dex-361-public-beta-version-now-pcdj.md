@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX 3.6.1 Public Beta Version Now - PCDJ
-date: 2024-12-16T22:33:21.454Z
-updated: 2024-12-24T03:36:40.189Z
+date: 2024-12-26T16:04:46.618Z
+updated: 2024-12-29T23:13:05.474Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ _**NOTE:** Since version 3.6.1 is a public beta and [DJ software](https://tools.
 _Have questions about DEX 3.6.1 DJ, **video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,22 +60,20 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/xplore-the-past-study-better-student-approved-historical-youtube-channels/"><u>[New] Explore the Past, Study Better Student-Approved Historical YouTube Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-discovering-all-in-youtube-shorts-guide-for-2024/"><u>[Updated] Discovering All in YouTube Shorts Guide for 2024</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/achieve-superior-visual-experience-transforming-your-videos-into-premium-quality-dvd-format/"><u>Achieve Superior Visual Experience: Transforming Your Videos Into Premium Quality DVD Format</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/core-concepts-in-moving-graphic-artistry/"><u>Core Concepts in Moving Graphic Artistry</u></a></li>
-<li><a href="https://fox-links.techidaily.com/enhancing-dialogue-guidelines-for-subscriber-relations/"><u>Enhancing Dialogue Guidelines for Subscriber Relations</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-samsung-galaxy-m54-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Samsung Galaxy M54 5G to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/insta-twist-techniques-for-tailoring-your-photos-on-the-fly/"><u>Insta-Twist Techniques for Tailoring Your Photos on the Fly</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/jin-yuuichis-stunning-backdrops-and-digital-art-premium-wallpaper-collection-by-yl-computing/"><u>Jin Yuuichis Stunning Backdrops & Digital Art: Premium Wallpaper Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mouse-and-trackpad-configuration-a-step-by-step-guide-from-yl-computing/"><u>Mouse & Trackpad Configuration: A Step-by-Step Guide From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-your-gpu-drivers-troubles-expert-tips-from-yl-computings-best-practices/"><u>Resolving Your GPU Drivers Troubles: Expert Tips From YL Computing's Best Practices</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/safeguarding-your-investments-how-to-recognize-and-dodge-scams-within-the-world-of-crypto-by-yl-software-experts/"><u>Safeguarding Your Investments: How to Recognize and Dodge Scams Within the World of Crypto, by YL Software Experts</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-google-pixel-8-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Google Pixel 8 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-unresponsive-scanner-issues-a-step-by-step-guide-from-yl-computing/"><u>Solving Unresponsive Scanner Issues: A Step-by-Step Guide From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/the-ultimate-tutorial-on-changing-names-for-your-avi-videos-by-yl-computing/"><u>The Ultimate Tutorial on Changing Names for Your .avi Videos by YL Computing</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/ultimate-solutions-how-to-restore-functionality-in-non-responsive-pc-speakers/"><u>Ultimate Solutions: How to Restore Functionality in Non-Responsive PC Speakers</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-confucian-influence-the-impact-on-chinese-society-during-the-qing-era-explored-by-yl-technologies/"><u>Unveiling Confucian Influence: The Impact on Chinese Society During the Qing Era - Explored by YL Technologies</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-tenth-user-registration-walkthrough-tips-and-tricks-from-the-experts-at-yl-computing/"><u>Windows Tenth User Registration Walkthrough - Tips and Tricks From the Experts at YL Computing</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-pro-video-tips-add-borders-and-raise-quality-on-ig/"><u>[New] In 2024, Pro Video Tips Add Borders and Raise Quality on IG</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-techniques-to-slow-down-online-video-playback-49-chars/"><u>[New] In 2024, Techniques to Slow Down Online Video Playback (49 Chars)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/boosting-your-gameplay-tips-for-increased-zoom-range-for-2024/"><u>Boosting Your Gameplay Tips for Increased Zoom Range for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/discover-the-new-features-in-pcdjs-lyrx-update-v1601-revolutionize-your-karaoke-sessions/"><u>Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/identifying-issues-with-your-power-supply-unit-a-comprehensive-guide-by-yl-computing/"><u>Identifying Issues with Your Power Supply Unit: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/live-video-breakthrough-perfect-screen-share-tactics-for-fb/"><u>Live Video Breakthrough Perfect Screen-Share Tactics for Fb</u></a></li>
+<li><a href="https://games-able.techidaily.com/overcoming-high-resource-consumption-in-roblox-for-iphones/"><u>Overcoming High Resource Consumption in Roblox for iPhones</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/recognizing-when-your-computer-requires-an-upgrade-is-it-time-for-a-new-graphics-card-insights-by-yl-computing/"><u>Recognizing When Your Computer Requires an Upgrade: Is It Time for a New Graphics Card? - Insights by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-hardware-issues-in-windows-os-a-step-by-step-tutorial-from-yl-software-experts/"><u>Resolving Hardware Issues in Windows OS: A Step-by-Step Tutorial From YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-printing-problems-a-step-by-step-guide-by-yl-software-experts/"><u>Resolving Printing Problems: A Step-by-Step Guide by YL Software Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/revival-trumps-facebook-and-instagram-via-meta/"><u>Revival: Trump’s Facebook & Instagram via Meta</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-new-user-profiles-a-step-by-step-guide-with-yl-computing-solutions/"><u>Setting Up New User Profiles: A Step-by-Step Guide with YL Computing Solutions</u></a></li>
+<li><a href="https://games-able.techidaily.com/why-master-hrtf-to-win-at-valorant/"><u>Why Master HRTF to Win at Valorant?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/yl-computings-ultimate-troubleshooting-for-easier-software-updates-learn-how-today/"><u>YL Computing's Ultimate Troubleshooting for Easier Software Updates – Learn How Today!</u></a></li>
 </ul></div>
 

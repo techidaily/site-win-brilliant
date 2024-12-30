@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2024-12-17T01:19:43.164Z
-updated: 2024-12-24T10:21:14.042Z
+date: 2024-12-28T17:01:56.243Z
+updated: 2024-12-29T23:42:46.155Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,21 +60,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-crafting-snug-winter-atmospheres-for-engaging-online-content/"><u>[New] Crafting Snug Winter Atmospheres for Engaging Online Content</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-scripting-summative-stories/"><u>[New] In 2024, Scripting Summative Stories</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-professional-techniques-for-mobile-and-dslr-igtv-mastery-for-2024/"><u>[New] Professional Techniques for Mobile & DSLR IGTV Mastery for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-anatomy-of-an-anti-viewer-cutting-edge-strategies-for-reversed-youtube-videos/"><u>[Updated] 2024 Approved Anatomy of an Anti-Viewer Cutting Edge Strategies for Reversed YouTube Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-a-gamers-guide-to-twisting-videos-on-youtube-2e-for-2024/"><u>[Updated] A Gamer's Guide to Twisting Videos on YouTube (2E) for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-leading-edge-tech-for-action-footage-capture/"><u>[Updated] In 2024, Leading Edge Tech for Action Footage Capture</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-in-depth-look-at-srt-knowledge-for-all-levels/"><u>2024 Approved In-Depth Look at SRT Knowledge for All Levels</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/accelerate-your-computer-effective-strategies-for-purging-redundant-data-by-yl-computing-solutions/"><u>Accelerate Your Computer: Effective Strategies for Purging Redundant Data by YL Computing Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/dealing-with-a-failed-gpu-action-plan-and-support-from-yl-software-experts/"><u>Dealing with a Failed GPU: Action Plan and Support From YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/frequency-of-sessions-at-chinas-national-peoples-congress-insights-from-yl-technology-solutions/"><u>Frequency of Sessions at China's National People’s Congress: Insights From YL Technology Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/identifying-signs-of-a-defective-gpu-a-guide-by-yl-computing-expert-insights/"><u>Identifying Signs of a Defective GPU: A Guide by YL Computing - Expert Insights</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-xiaomi-redmi-13c-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Xiaomi Redmi 13C 5G Phone?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-the-mystery-behind-recurring-pc-freezes-during-gaming-sessions-insights-from-yl-computing/"><u>Solving the Mystery Behind Recurring PC Freezes During Gaming Sessions - Insights From YL Computing</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-for-emailing-e-books-from-calibre-to-kindle-devices-over-lanwlan/"><u>Step-by-Step Guide for Emailing E-Books From Calibre to Kindle Devices over LAN/WLAN</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/top-reasons-behind-device-breakdowns-unveiling-key-factors-in-hardware-malfunctions/"><u>Top Reasons Behind Device Breakdowns: Unveiling Key Factors in Hardware Malfunctions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-a-non-responsive-scanner-expert-solutions-by-yl-computing/"><u>Troubleshooting a Non-Responsive Scanner: Expert Solutions by YL Computing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovating-visual-content-mastery-of-windows-11-editing-tools/"><u>[New] Innovating Visual Content Mastery of Windows 11 Editing Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-optimal-recording-is-30fps-or-60fps-superior-for-videos-in-2024/"><u>[New] Optimal Recording Is 30Fps or 60Fps Superior for Videos, In 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1732515092726-ylyl/"><u>从皇权统治到民意政府，中国这段阶段是什么时期？ - 由YL计算机和YL软件提供的分析</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/decoding-blockchain-and-its-role-in-digital-currencies-an-in-depth-analysis-by-yl-software-experts/"><u>Decoding Blockchain and Its Role in Digital Currencies: An In-Depth Analysis by YL Software Experts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elite-catch-footage-cameras-top-5-list/"><u>Elite Catch Footage Cameras - Top 5 List</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/evaluating-various-hardware-component-performances-an-in-depth-guide-yl-computing/"><u>Evaluating Various Hardware Component Performances: An In-Depth Guide - YL Computing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/youtube-download-methods-without-apps-for-2024/"><u>Free YouTube Download Methods Without Apps for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-efficiently-organize-and-purge-unwanted-files-on-your-computer-with-tips-by-yl-software-experts/"><u>How to Efficiently Organize and Purge Unwanted Files on Your Computer with Tips by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-secure-your-vital-data-a-comprehensive-guide-from-yl-software-experts/"><u>How to Secure Your Vital Data: A Comprehensive Guide From YL Software Experts</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-filmmaking-on-a-shoestring-the-7-best-affordable-software-options/"><u>In 2024, Filmmaking on a Shoestring The 7 Best Affordable Software Options</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-edits-bottom-line-pro-guide-to-tiktok-creativity/"><u>In 2024, Top Edits, Bottom Line Pro Guide to TikTok Creativity</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/karaoke-app-for-home-use-get-your-demo-of-pcdj-beta-v085865-now/"><u>Karaoke App for Home Use - Get Your Demo of PCDJ Beta v0.8.5865 Now!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/master-excel-opens-simple-tricks-for-accessing-your-files-yl-computing/"><u>Master Excel Opens: Simple Tricks for Accessing Your Files (YL Computing)</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/protect-your-investment-expert-strategies-from-yl-software-for-detecting-cryptocurrency-ico-scams/"><u>Protect Your Investment: Expert Strategies From YL Software for Detecting Cryptocurrency ICO Scams</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/redefining-outdated-directx-software-through-dxvk-innovation/"><u>Redefining Outdated DirectX Software Through DXVK Innovation</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-oppo-find-n3-flip-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Oppo Find N3 Flip Phones</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-pc-understanding-the-reasons-behind-startup-issues/"><u>Troubleshooting Your PC: Understanding the Reasons Behind Startup Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-master-of-moneymaking-skills-for-2024/"><u>YouTube Master of Moneymaking Skills for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/m4v-3g2-movavi/"><u>무료 웹 서버로 M4V 및 3G2 텍스트화 - Movavi</u></a></li>
 </ul></div>
 

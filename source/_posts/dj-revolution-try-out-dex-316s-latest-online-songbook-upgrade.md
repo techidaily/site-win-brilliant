@@ -1,7 +1,7 @@
 ---
 title: "DJ Revolution: Try Out DEX 3.16'S Latest Online Songbook Upgrade!"
-date: 2024-12-22T07:20:27.756Z
-updated: 2024-12-23T16:41:31.739Z
+date: 2024-12-24T17:00:17.219Z
+updated: 2024-12-30T03:19:20.782Z
 tags:
   - product
 categories:
@@ -40,31 +40,35 @@ OK, enough for the serious stuff — you want to download and test!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Overview of how to use the new KSR System in DEX 3.16 RC1:
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1 "Login Screen")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1) Open up DEX 3.16 and click the Options button. Under the “Karaoke” tab, click on the “Login to KSR” button. 
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/clickregister-signup-2ndslide.jpg?fit=1030%2C575&ssl=1 "Click Register")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/clickregister-signup-2ndslide.jpg?fit=1030%2C575&ssl=1)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2) Click on the “Register / Sign Up” Option. 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/create-account-register-3rdslide.jpg?fit=1030%2C575&ssl=1 "Create Account")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/create-account-register-3rdslide.jpg?fit=1030%2C575&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3) Create your account and click “Register”. 
 
 [View Larger Image ![](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/authorizeapp-4thslide.jpg?fit=1030%2C575&ssl=1 "Authorize App")](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/authorizeapp-4thslide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4) Click on “Authorize”. 
@@ -75,10 +79,6 @@ OK, enough for the serious stuff — you want to download and test!
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1 "Restart")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6) Restart DEX 3\. 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/dragsongsintokaraokecataloglist-7thslide.jpg?fit=1030%2C575&ssl=1 "create list")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/dragsongsintokaraokecataloglist-7thslide.jpg?fit=1030%2C575&ssl=1)
@@ -86,10 +86,6 @@ OK, enough for the serious stuff — you want to download and test!
 7) Add your own karaoke music to the “Karaoke Catalog” special list (located under Special Lists). You can select all your karaoke songs and drag/drop to the list to populate it, or only the karaoke songs you wish to share with singers (currently capped at 100,000 total songs). 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/backintooptions-clickupdate-KSR-songbook-namesongbook-8thslide.jpg?fit=1030%2C575&ssl=1 "upload songbook")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/backintooptions-clickupdate-KSR-songbook-namesongbook-8thslide.jpg?fit=1030%2C575&ssl=1)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 8) Go into DEX 3’s options and under the “Karaoke” tab click the “Update KSR Songbook” button to sync your list of karaoke music. You will be asked to add a venue/songbook name. Create a unique name and click “OK”. 
 
@@ -111,6 +107,10 @@ Please feel free to test the new KSR system with DEX 3.16\. If you have issues o
 
 _**Enjoy!**_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### _Related_
 
 https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/ksr-coverimage-1.jpg?fit=1200%2C670&ssl=1 670 1200 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2021-04-16 12:39:482023-04-10 17:03:48DEX 3.16 Release Candidate | Test the New Online Songbook Feature!}
@@ -130,18 +130,21 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/ksr-coverimage-1.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-overcoming-the-noise-barrier-twitter-vids-without-sounds/"><u>[New] In 2024, Overcoming the Noise Barrier Twitter Vids Without Sounds</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-premiere-add-ons-for-firefox-recording/"><u>[Updated] 2024 Approved Premiere Add-Ons for Firefox Recording</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-photographers-pathway-transitioning-from-camera-to-computer-screen-for-2024/"><u>[Updated] The Photographer's Pathway Transitioning From Camera to Computer Screen for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-unveiling-the-link-how-the-sino-japanese-conflict-fueled-wwii-onset-insights-by-yl-computing/"><u>1. Unveiling the Link: How the Sino-Japanese Conflict Fueled WWII Onset - Insights by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-respond-when-you-hear-a-clicking-sound-from-your-hard-drive-tips-and-solutions-by-yl-tech-support/"><u>How to Respond When You Hear a Clicking Sound From Your Hard Drive - Tips & Solutions by YL Tech Support</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-snapchat-to-subscribers-how-jake-crafted-youtube-magic/"><u>In 2024, Snapchat to Subscribers How Jake Crafted YouTube Magic</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/is-it-possible-to-run-your-scanner-on-oses-apart-from-windows-discover-the-options-with-yl-software/"><u>Is It Possible to Run Your Scanner on OSes Apart From Windows? Discover the Options with YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/securing-your-digital-assets-effective-security-measures-in-the-world-of-crypto-guidance-by-yl-tech-experts/"><u>Securing Your Digital Assets: Effective Security Measures in the World of Crypto – Guidance by YL Tech Experts</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016728227-solve-your-displays-issues-when-nvidia-output-is-missing/"><u>Solve Your Displays Issues When Nvidia Output Is Missing!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-transformative-power-of-sharing-on-facebook/"><u>The Transformative Power of 'Sharing' On Facebook</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-confucian-influence-the-impact-on-chinese-society-during-the-qing-era-explored-by-yl-technologies/"><u>Unveiling Confucian Influence: The Impact on Chinese Society During the Qing Era - Explored by YL Technologies</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-how-to-control-your-pcs-network-discovery-settings-on-windows-10/"><u>Unveiling How to Control Your PC's Network Discovery Settings on Windows 10</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-tenth-user-registration-walkthrough-tips-and-tricks-from-the-experts-at-yl-computing/"><u>Windows Tenth User Registration Walkthrough - Tips and Tricks From the Experts at YL Computing</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-removing-inaudible-voices-from-obs-recording-for-2024/"><u>[New] Removing Inaudible Voices From OBS Recording for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-solutions-for-common-windows-programming-errors-guidance-by-yl-software-experts/"><u>Easy Solutions for Common Windows Programming Errors - Guidance by YL Software Experts</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/edit-like-a-pro-64-bit-video-editor-for-windows-8-and-up/"><u>Edit Like a Pro 64-Bit Video Editor for Windows 8 and Up</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-3d-animation-apps-for-android-and-iphone-a-comprehensive-guide/"><u>Free 3D Animation Apps for Android and iPhone A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-samsung-galaxy-a34-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Samsung Galaxy A34 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-the-art-of-finding-cost-effective-graphics/"><u>Mastering the Art of Finding Cost-Effective Graphics</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-family-safety-features-on-your-pc-a-step-by-step-guide-windows-yl-computing/"><u>Setting Up Family Safety Features on Your PC: A Step-by-Step Guide (Windows) - YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/signs-of-failure-in-your-gpu-tips-by-yl-software-experts/"><u>Signs of Failure in Your GPU: Tips by YL Software Experts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/skip-unverified-warning-in-adobe-software/"><u>Skip Unverified Warning in Adobe Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-navigating-and-opening-file-folders-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Navigating and Opening File Folders on Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-complete-guide-to-producing-professional-gopro-video-content-for-2024/"><u>The Complete Guide to Producing Professional GoPro Video Content for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unveiling-dex-31002-update-explore-new-features-with-pcdj-dj-software/"><u>Unveiling DEX 3.10.0.2 Update: Explore New Features with PCDJ DJ Software!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-premium-subscription-everything-you-need-to-know-for-2024/"><u>YouTube Premium Subscription - Everything You Need to Know for 2024</u></a></li>
 </ul></div>
 
