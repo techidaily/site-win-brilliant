@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2024-12-28T17:01:56.243Z
-updated: 2024-12-29T23:42:46.155Z
+date: 2025-01-06T02:31:51.013Z
+updated: 2025-01-09T07:13:06.497Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,24 +60,15 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-innovating-visual-content-mastery-of-windows-11-editing-tools/"><u>[New] Innovating Visual Content Mastery of Windows 11 Editing Tools</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-optimal-recording-is-30fps-or-60fps-superior-for-videos-in-2024/"><u>[New] Optimal Recording Is 30Fps or 60Fps Superior for Videos, In 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1732515092726-ylyl/"><u>从皇权统治到民意政府，中国这段阶段是什么时期？ - 由YL计算机和YL软件提供的分析</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/decoding-blockchain-and-its-role-in-digital-currencies-an-in-depth-analysis-by-yl-software-experts/"><u>Decoding Blockchain and Its Role in Digital Currencies: An In-Depth Analysis by YL Software Experts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/elite-catch-footage-cameras-top-5-list/"><u>Elite Catch Footage Cameras - Top 5 List</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/evaluating-various-hardware-component-performances-an-in-depth-guide-yl-computing/"><u>Evaluating Various Hardware Component Performances: An In-Depth Guide - YL Computing</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/youtube-download-methods-without-apps-for-2024/"><u>Free YouTube Download Methods Without Apps for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-efficiently-organize-and-purge-unwanted-files-on-your-computer-with-tips-by-yl-software-experts/"><u>How to Efficiently Organize and Purge Unwanted Files on Your Computer with Tips by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-secure-your-vital-data-a-comprehensive-guide-from-yl-software-experts/"><u>How to Secure Your Vital Data: A Comprehensive Guide From YL Software Experts</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-filmmaking-on-a-shoestring-the-7-best-affordable-software-options/"><u>In 2024, Filmmaking on a Shoestring The 7 Best Affordable Software Options</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-edits-bottom-line-pro-guide-to-tiktok-creativity/"><u>In 2024, Top Edits, Bottom Line Pro Guide to TikTok Creativity</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/karaoke-app-for-home-use-get-your-demo-of-pcdj-beta-v085865-now/"><u>Karaoke App for Home Use - Get Your Demo of PCDJ Beta v0.8.5865 Now!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/master-excel-opens-simple-tricks-for-accessing-your-files-yl-computing/"><u>Master Excel Opens: Simple Tricks for Accessing Your Files (YL Computing)</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/protect-your-investment-expert-strategies-from-yl-software-for-detecting-cryptocurrency-ico-scams/"><u>Protect Your Investment: Expert Strategies From YL Software for Detecting Cryptocurrency ICO Scams</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/redefining-outdated-directx-software-through-dxvk-innovation/"><u>Redefining Outdated DirectX Software Through DXVK Innovation</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-oppo-find-n3-flip-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Oppo Find N3 Flip Phones</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-pc-understanding-the-reasons-behind-startup-issues/"><u>Troubleshooting Your PC: Understanding the Reasons Behind Startup Issues</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/be-master-of-moneymaking-skills-for-2024/"><u>YouTube Master of Moneymaking Skills for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/m4v-3g2-movavi/"><u>무료 웹 서버로 M4V 및 3G2 텍스트화 - Movavi</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ace-your-messaging-must-know-advanced-tricks-and-techniques-in-whatsapp/"><u>[New] In 2024, Ace Your Messaging Must-Know Advanced Tricks and Techniques in WhatsApp</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-dial-in-the-ideal-aspect-ratio-for-stunning-youtube-videos/"><u>[Updated] Dial in the Ideal Aspect Ratio for Stunning YouTube Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-at-its-best-why-the-moto-g-stylus-deserves-your-attention-a-full-length-review/"><u>Affordable Tech at Its Best – Why the Moto G Stylus Deserves Your Attention: A Full-Length Review</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-foremost-6-online-spaces-dominating-b2b-interactions/"><u>In 2024, Foremost 6 Online Spaces Dominating B2B Interactions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-family-safety-features-on-your-pc-a-step-by-step-guide-windows-yl-computing/"><u>Setting Up Family Safety Features on Your PC: A Step-by-Step Guide (Windows) - YL Computing</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/steelseries-gaming-mouse-drivers-free-downloads-available/"><u>SteelSeries Gaming Mouse Drivers - Free Downloads Available</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-navigating-and-opening-file-folders-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Navigating and Opening File Folders on Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/galii-asabthha-pahaca-ka-mathatha-aaikanalka-vapasa-ka-le-taraka-para-vashashhajaniata/"><u>गोलाई / असंबंधी पहुंचें का मुद्दा: आइकन/लिंक वापसी के लिए तर्क पर विशेषज्ञता</u></a></li>
 </ul></div>
 

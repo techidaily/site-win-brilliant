@@ -1,7 +1,7 @@
 ---
 title: "PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software"
-date: 2024-12-24T21:46:10.752Z
-updated: 2024-12-30T00:07:48.192Z
+date: 2025-01-05T02:23:46.558Z
+updated: 2025-01-09T08:09:07.346Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ Unlike macOS Catalina, which did require DEX 3 DJs to wait on upgrading for a fe
 If you haven’t already, [download and try the latest DEX 3.15 DJ software release](https://tools.techidaily.com/pcdj/products/) with macOS Big Sur, now with support for [Beatport LINK and Beatsource LINK](https://tools.techidaily.com/pcdj/products/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,21 +44,15 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/11/macOS-Big-Sur-800x450.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-exploring-the-best-ultimate-guide-to-premium-unboxing-youtubers-2024/"><u>[Updated] Exploring the Best Ultimate Guide to Premium Unboxing YouTubers, 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/breaking-down-facebooks-latest-developments/"><u>Breaking Down Facebook's Latest Developments</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/controlling-application-access-on-your-pc-expert-tips-for-using-the-windows-firewall-effectively-yl-software-solutions/"><u>Controlling Application Access on Your PC: Expert Tips for Using the Windows Firewall Effectively - YL Software Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/download-the-latest-dex-and-red-mod-update-v355-new-features-and-improvements/"><u>Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147404422-elevating-conversation-confidentiality-facebooks-new-direct-messaging-and-call-services-with-end-to-end-encryption/"><u>Elevating Conversation Confidentiality: Facebook’s New Direct Messaging & Call Services with End-to-End Encryption</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/elite-9-directors-cuts-downloader-for-2024/"><u>Elite 9 Directors' Cuts Downloader for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expert-solutions-to-power-up-your-scanner-from-scratch-tips-from-yl-software-professionals/"><u>Expert Solutions to Power Up Your Scanner From Scratch - Tips From YL Software Professionals</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1724766229846-mac/"><u>Macユーザー満足!今年のクリスマス限定、お手頃価格で人気ソフトウェア無料賞品プレゼント開催中！</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/master-the-art-of-file-encryption-simple-password-security-techniques-with-yl-software-insights/"><u>Master the Art of File Encryption: Simple Password Security Techniques with YL Software Insights</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/restoring-integrity-to-windows-11-system-files-tips-and-tricks-from-yl-computing-experts/"><u>Restoring Integrity to Windows 11 System Files: Tips and Tricks From YL Computing Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/sharing-files-and-folders-seamlessly-a-comprehensive-guide-by-yl-computing/"><u>Sharing Files & Folders Seamlessly: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-tutorial-getting-fortnite-up-and-running-on-android-phones/"><u>Step-by-Step Tutorial: Getting Fortnite Up and Running on Android Phones</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722978813528-synaptics-drivers-for-windows-made-easy-free-download-and-update-options/"><u>Synaptics Drivers for Windows Made Easy – Free Download & Update Options</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/transform-your-screen-with-ethereal-supernatural-wallpaper-designs-high-quality-images-and-backgrounds-from-yl-software/"><u>Transform Your Screen with Ethereal Supernatural Wallpaper Designs: High-Quality Images & Backgrounds From YL Software</u></a></li>
-<li><a href="https://fox-links.techidaily.com/vector-graphics-101-overview-of-varieties-and-tools-for-2024/"><u>Vector Graphics 101 Overview of Varieties & Tools for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-analyzing-the-full-range-of-obs-studios-capabilities/"><u>[New] 2024 Approved Analyzing the Full Range of OBS Studio's Capabilities</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-becoming-a-youtube-pro-the-ultimate-picture-post-guide/"><u>[New] Becoming a YouTube Pro The Ultimate Picture Post Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-the-6th-richest-strategies-for-successful-ig/"><u>[Updated] Unlock the 6Th Richest Strategies for Successful IG</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-panoramic-insights-digest/"><u>2024 Approved Panoramic Insights Digest</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-detect-gpu-malfunctions-from-afar-unveiling-remote-troubleshooting-techniques-with-yl-computing/"><u>Can You Detect GPU Malfunctions From Afar? Unveiling Remote Troubleshooting Techniques with YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-free-high-quality-hd-honda-hr-v-image-backgrounds-yl-computings-exclusive-collection/"><u>Download Free High-Quality HD Honda HR-V Image Backgrounds - YL Computing's Exclusive Collection</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enhanced-online-engagement-through-smart-cookiebot-strategies/"><u>Enhanced Online Engagement Through Smart Cookiebot Strategies</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/enhanced-singing-experience-to-attract-those-looking-for-a-better-karaoke-software-experience-and-includes-relevant-keywords-such-as-lyrx-karaoke-software-u82/"><u>Enhanced Singing Experience to Attract Those Looking for a Better Karaoke Software Experience and Includes Relevant Keywords Such as LYRX Karaoke Software Update.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-tackling-the-mystery-of-missing-shorts-video-images/"><u>In 2024, Tackling the Mystery of Missing Shorts Video Images</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-device-efficiency-a-guide-by-yl-computing-on-configuring-power-options/"><u>Mastering Device Efficiency: A Guide by YL Computing on Configuring Power Options</u></a></li>
 </ul></div>
 

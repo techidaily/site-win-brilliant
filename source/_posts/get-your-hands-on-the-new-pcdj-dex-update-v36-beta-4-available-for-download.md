@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2024-12-29T02:20:52.014Z
-updated: 2024-12-29T17:37:09.886Z
+date: 2025-01-07T18:40:18.124Z
+updated: 2025-01-09T00:34:48.871Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
@@ -59,7 +59,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,17 +81,15 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-brilliant.techidaily.com/accelerate-your-laptop-with-efficient-disk-management-expert-strategies-from-yl-software/"><u>Accelerate Your Laptop with Efficient Disk Management: Expert Strategies From YL Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/assessing-the-pixel-slate-critical-insights-on-its-complicated-chromeos-ecosystem/"><u>Assessing the Pixel Slate: Critical Insights on Its Complicated ChromeOS Ecosystem</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/decelerate-your-clicking-how-to-curtail-mouse-accel-on-win-11/"><u>Decelerate Your Clicking: How to Curtail Mouse Accel on Win 11</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/eliminating-windows-bsod-correct-wdf-issues/"><u>Eliminating Windows BSOD: Correct WDF Issues</u></a></li>
-<li><a href="https://techtrends.techidaily.com/exploring-googles-communication-tool-the-evolution-of-google-hangouts/"><u>Exploring Google's Communication Tool: The Evolution of Google Hangouts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-can-updating-your-software-and-drivers-boost-your-pcs-performance-insights-from-yl-computing/"><u>How Can Updating Your Software & Drivers Boost Your PC's Performance: Insights From YL Computing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/how-to-install-vp9-vp10-and-av1-video-codecs-on-your-windows-10-machine-a-complete-guide/"><u>How to Install VP9, VP10 & AV1 Video Codecs on Your Windows 10 Machine – A Complete Guide</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Vivo S17 | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/is-an-impaired-graphics-card-cooler-responsible-for-computer-overheating-risks/"><u>Is an Impaired Graphics Card Cooler Responsible for Computer Overheating Risks?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-tips-for-broken-sound-cards-by-yl-software-experts/"><u>Troubleshooting Tips for Broken Sound Cards by YL Software Experts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-start-making-your-own-sports-highlight-film/"><u>[New] In 2024, Quick Start Making Your Own Sports Highlight Film</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-improving-remote-work-communications-with-4-strategies/"><u>[Updated] 2024 Approved Improving Remote Work Communications with #4 Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-windows-11-video-editing-tools-filmora-and-others/"><u>[Updated] In 2024, Top Windows 11 Video Editing Tools Filmora & Others</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/explore-digital-art-by-angie-yonaga-premium-wallpapers-and-backgrounds-for-enthusiasts-powered-by-yl-software/"><u>Explore Digital Art by Angie Yonaga: Premium Wallpapers and Backgrounds for Enthusiasts – Powered by YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-release-more-storage-on-your-computer-essential-tips-from-yl-computing/"><u>How to Release More Storage on Your Computer - Essential Tips From YL Computing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-game-changer-implementing-custom-gaming-banners/"><u>In 2024, The Game Changer Implementing Custom Gaming Banners</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/seamless-techniques-for-swift-removal-of-your-youtube-comments/"><u>Seamless Techniques for Swift Removal of Your Youtube Comments</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/secure-your-investments-expert-guide-on-safe-cryptocurrency-strategies-by-yl-computing/"><u>Secure Your Investments: Expert Guide on Safe Cryptocurrency Strategies by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-your-pcs-silent-issue-troubleshooting-a-non-responsive-sound-card-expert-advice-from-yl-computing/"><u>Solving Your PC's Silent Issue: Troubleshooting a Non-Responsive Sound Card - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-youtube-potential-editing-after-the-upload-process/"><u>Unlocking YouTube Potential Editing After the Upload Process</u></a></li>
 </ul></div>
 

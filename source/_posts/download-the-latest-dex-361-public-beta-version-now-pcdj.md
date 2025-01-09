@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX 3.6.1 Public Beta Version Now - PCDJ
-date: 2024-12-26T16:04:46.618Z
-updated: 2024-12-29T23:13:05.474Z
+date: 2025-01-04T03:52:07.853Z
+updated: 2025-01-09T10:43:06.760Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ _**NOTE:** Since version 3.6.1 is a public beta and [DJ software](https://tools.
 _Have questions about DEX 3.6.1 DJ, **video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,20 +60,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-pro-video-tips-add-borders-and-raise-quality-on-ig/"><u>[New] In 2024, Pro Video Tips Add Borders and Raise Quality on IG</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-techniques-to-slow-down-online-video-playback-49-chars/"><u>[New] In 2024, Techniques to Slow Down Online Video Playback (49 Chars)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/boosting-your-gameplay-tips-for-increased-zoom-range-for-2024/"><u>Boosting Your Gameplay Tips for Increased Zoom Range for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/discover-the-new-features-in-pcdjs-lyrx-update-v1601-revolutionize-your-karaoke-sessions/"><u>Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/identifying-issues-with-your-power-supply-unit-a-comprehensive-guide-by-yl-computing/"><u>Identifying Issues with Your Power Supply Unit: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/live-video-breakthrough-perfect-screen-share-tactics-for-fb/"><u>Live Video Breakthrough Perfect Screen-Share Tactics for Fb</u></a></li>
-<li><a href="https://games-able.techidaily.com/overcoming-high-resource-consumption-in-roblox-for-iphones/"><u>Overcoming High Resource Consumption in Roblox for iPhones</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/recognizing-when-your-computer-requires-an-upgrade-is-it-time-for-a-new-graphics-card-insights-by-yl-computing/"><u>Recognizing When Your Computer Requires an Upgrade: Is It Time for a New Graphics Card? - Insights by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-hardware-issues-in-windows-os-a-step-by-step-tutorial-from-yl-software-experts/"><u>Resolving Hardware Issues in Windows OS: A Step-by-Step Tutorial From YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-printing-problems-a-step-by-step-guide-by-yl-software-experts/"><u>Resolving Printing Problems: A Step-by-Step Guide by YL Software Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/revival-trumps-facebook-and-instagram-via-meta/"><u>Revival: Trump’s Facebook & Instagram via Meta</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/setting-up-new-user-profiles-a-step-by-step-guide-with-yl-computing-solutions/"><u>Setting Up New User Profiles: A Step-by-Step Guide with YL Computing Solutions</u></a></li>
-<li><a href="https://games-able.techidaily.com/why-master-hrtf-to-win-at-valorant/"><u>Why Master HRTF to Win at Valorant?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-computings-ultimate-troubleshooting-for-easier-software-updates-learn-how-today/"><u>YL Computing's Ultimate Troubleshooting for Easier Software Updates – Learn How Today!</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-swiftly-secure-screen-shots-on-windows/"><u>[New] Swiftly Secure Screen Shots on Windows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>[New] Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-reveal-the-disenchanted-instagrams-unfollowers/"><u>[Updated] 2024 Approved Reveal the Disenchanted Instagram's Unfollowers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-synchronizing-melodies-with-inshot-clips/"><u>[Updated] 2024 Approved Synchronizing Melodies with InShot Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-online-subtitle-extractors-for-budget-friendly-viewers/"><u>[Updated] Top 10 Online Subtitle Extractors for Budget-Friendly Viewers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/bluetooth-mouse-troubles-restore-functionality-on-windows-with-these-easy-fixes/"><u>Bluetooth Mouse Troubles? Restore Functionality on Windows with These Easy Fixes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/decoding-the-purpose-and-application-of-hugging-face-in-ai/"><u>Decoding the Purpose and Application of Hugging Face in AI</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-honor-x9b-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Honor X9b</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-strategic-steps-for-a-million-viewing-video-masterpiece/"><u>In 2024, Strategic Steps for a Million-Viewing Video Masterpiece</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/premium-high-res-ferrari-f12-berlinetta-desktop-backgrounds-from-yl-software-rev-up-your-pc-decor/"><u>Premium High-Res Ferrari F12 Berlinetta Desktop Backgrounds From YL Software: Rev Up Your PC Décor</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/sec-consultation-on-bitcoin-etf-a-look-inside-yl-computing-and-hashdexs-innovative-proposal/"><u>SEC Consultation on Bitcoin ETF: A Look Inside YL Computing & Hashdex's Innovative Proposal 🌐✨</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-configuring-your-internet-settings-via-windows-control-panel-expert-advice-by-yl-computing/"><u>Step-by-Step Guide: Configuring Your Internet Settings via Windows Control Panel - Expert Advice by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-setting-your-system-clock-and-time-zone-in-windows-yl-software-solutions/"><u>Step-by-Step Guide: Setting Your System Clock & Time Zone in Windows - YL Software Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
 </ul></div>
 

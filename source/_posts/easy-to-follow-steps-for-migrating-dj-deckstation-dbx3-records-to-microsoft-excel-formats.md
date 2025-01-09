@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2024-12-22T19:41:28.723Z
-updated: 2024-12-29T20:13:45.546Z
+date: 2025-01-01T22:34:38.138Z
+updated: 2025-01-08T16:08:57.992Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,21 +46,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-guide-to-avi-to-gif-transformation-using-filmora-for-both-oses-for-2024/"><u>[New] The Ultimate Guide to AVI-to-GIF Transformation Using Filmora for Both OSes for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-skyrocket-your-youtube-traffic-with-effective-outros/"><u>[Updated] 2024 Approved Skyrocket Your YouTube Traffic with Effective Outros</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-thrifty-pc-recording-utilities/"><u>[Updated] In 2024, Thrifty PC Recording Utilities</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-creative-music-videos-a-list-of-15-youtube-projects/"><u>2024 Approved Creative Music Videos A List of 15 YouTube Projects</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/accessing-sound-hardware-via-control-panel-a-guide-from-yl-computing/"><u>Accessing Sound Hardware via Control Panel: A Guide From YL Computing</u></a></li>
-<li><a href="https://win-able.techidaily.com/buy-the-amazing-wonderfox-app-top-of-the-line-video-to-gif-maker/"><u>Buy the Amazing WonderFox App: Top-of-the-Line Video to GIF Maker!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/download-the-latest-lyrx-mac-karaoke-software-v1301-for-enhanced-singing-fun/"><u>Download the Latest LYRX Mac Karaoke Software (v1.3.0.1) for Enhanced Singing Fun!</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easily-obtain-and-install-the-latest-dell-d3100-printer-software-today/"><u>Easily Obtain and Install the Latest Dell D3100 Printer Software Today</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/epic-vehicle-pics-from-tron-legacy-stunning-visuals-and-wallpapers-curated-by-yl-software/"><u>Epic Vehicle Pics From Tron: Legacy - Stunning Visuals and Wallpapers Curated by YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/explore-a-gallery-of-adorable-pixel-art-designs-for-your-space-from-yl-software/"><u>Explore a Gallery of Adorable Pixel Art Designs for Your Space From YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/exploring-key-characteristics-of-distributed-digital-currencies-an-in-depth-guide-by-yl-computing/"><u>Exploring Key Characteristics of Distributed Digital Currencies: An In-Depth Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expressing-affection-our-playlist-with-your-love/"><u>Expressing Affection - Our Playlist with Your Love</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-13-mini-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 13 mini without Passcode or Face ID</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/persistent-windows-app-issues-why-your-programs-fail-to-stay-running-expert-advice-by-yl-computing/"><u>Persistent Windows App Issues: Why Your Programs Fail to Stay Running - Expert Advice by YL Computing</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely!</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/vocalvault-critique-of-live-sounds/"><u>VocalVault Critique of Live Sounds</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-podcasts-vs-youtube-which-should-you-choose/"><u>[New] In 2024, Podcasts Vs. YouTube Which Should You Choose?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-simple-steps-to-coordinate-consistent-productive-google-collaboration-times/"><u>[New] In 2024, Simple Steps to Coordinate Consistent, Productive Google Collaboration Times</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-breaking-down-the-process-of-livestreaming-online/"><u>[Updated] 2024 Approved Breaking Down the Process of Livestreaming Online</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-ultimate-guide-to-selecting-best-windows-screen-capture-tools-for-2024/"><u>[Updated] Ultimate Guide to Selecting Best Windows Screen Capture Tools for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728507376844-windows-11-3/"><u>如何在升级到 Windows 11 时保护数据：3 个有效的方法</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/5pit5a245ywn6lk75oyh5y2x77ya5aac5l2v6ksh6ko956gs56kf5lit55qe5lia6zq75yiw5yplusm5lia6zq7/"><u>易學免費指南：如何複製硬碟中的一隻到另一隻</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/a-guide-to-selecting-top-ranked-software-for-hard-drive-partition-repair/"><u>A Guide to Selecting Top-Ranked Software for Hard Drive Partition Repair</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/comandi-facile-e-gratis-da-usare-in-cmd-per-ripristinare-i-file-dallhard-disk/"><u>Comandi Facile E Gratis Da Usare in CMD per Ripristinare I File Dall'Hard Disk</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/comment-recuperer-des-fichiers-supprimes-avec-autopsy/"><u>Comment Récupérer Des Fichiers Supprimés Avec Autopsy?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/converting-physical-drives-to-virtual-machines-made-easy-using-disk2vhd-a-comprehensive-tutorial/"><u>Converting Physical Drives to Virtual Machines Made Easy Using Disk2VHD - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guide-complet-comment-recuperer-facilement-une-partition-egaree-sur-windows-10-ou-11-en-quatre-simples-etapes/"><u>Guide Complet: Comment Récupérer Facilement Une Partition Égarée Sur Windows 10 Ou 11 en Quatre Simples Etapes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-realme-narzo-n53-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Realme Narzo N53 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-beat-the-standard-a-complete-tutorial-for-adding-ringtones-and-sounds-to-android/"><u>In 2024, Beat the Standard A Complete Tutorial for Adding Ringtones & Sounds to Android</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/logitech-g27-driver-setup-for-win-11-win-10-and-win-7-computers-download-here/"><u>Logitech G27 Driver Setup for Win 11, Win 10 and Win 7 Computers - Download Here</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/seamless-configuration-transfer-simplified-strategies-for-exporting-and-importing-settings/"><u>Seamless Configuration Transfer: Simplified Strategies for Exporting and Importing Settings</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/understanding-the-basics-a-comprehensive-guide-to-the-m4v-video-file-format/"><u>Understanding the Basics: A Comprehensive Guide to the M4V Video File Format</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-your-razer-devices-easily-with-compatible-drivers-in-windows-os-10-8-7-xp-and-vista/"><u>Update Your Razer Devices Easily with Compatible Drivers in Windows OS (10, 8, 7, XP & Vista)</u></a></li>
 </ul></div>
 

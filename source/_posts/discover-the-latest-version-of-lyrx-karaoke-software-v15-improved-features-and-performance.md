@@ -1,7 +1,7 @@
 ---
 title: Discover the Latest Version of LYRX Karaoke Software (v1.5) - Improved Features and Performance!
-date: 2024-12-26T23:13:37.135Z
-updated: 2024-12-29T20:15:38.451Z
+date: 2025-01-08T08:08:54.429Z
+updated: 2025-01-08T18:53:43.107Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Fixed, and Updated in LYRX 1.5
@@ -48,7 +48,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 _Have questions about the latest 1.5 version of our LYRX **karaoke player**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -70,16 +70,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2019/07/lyrx15-cover.jpg?fit=706%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-youtube-unleashed-a-creators-guide-to-greatness/"><u>[New] YouTube Unleashed A Creator's Guide to Greatness</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-insiders-tale-to-tripling-instagram-traffic/"><u>[Updated] In 2024, The Insider’s Tale to Tripling Instagram Traffic</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-xiaomi-redmi-a2-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Xiaomi Redmi A2? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/enabling-twain-functionality-for-scanners-in-windows-steps-and-tips-from-yl-software/"><u>Enabling TWAIN Functionality for Scanners in Windows: Steps and Tips From YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/enhancing-system-speed-and-performance-in-windows-nine-professional-guidance-by-yl-software-experts/"><u>Enhancing System Speed and Performance in Windows Nine – Professional Guidance by YL Software Experts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/grappling-giants-twitch-triumph-or-hitbox-heroics-in-2024/"><u>Grappling Giants Twitch Triumph or Hitbox Heroics, In 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/introducing-sabrents-groundbreaking-single-sided-rocket-nvme-gen5-4tb-and-8tb-the-latest-dram-free-ssd-innovation-for-laptops-gaming-pcs-and-next-gen-consol4/"><u>Introducing Sabrent's Groundbreaking Single-Sided Rocket NVMe Gen5 4TB & 8TB: The Latest DRAM-Free SSD Innovation for Laptops, Gaming PCs, and Next-Gen Consoles</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/mod-mov-mod/"><u>MOD MOV 영상 강조를 편리하게 만들기: 자연스러운 MOD화에 가장 적합한 무료 온라인 소프트웨어</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/steps-to-launch-network-and-sharing-settings-in-windows-os-yl-softwares-expert-advice/"><u>Steps to Launch Network & Sharing Settings in Windows OS - YL Software's Expert Advice</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unlocking-kjs-secrets-how-karaoke-cloud-pro-delivers-ultimate-dj-tools/"><u>Unlocking KJ's Secrets: How Karaoke Cloud Pro Delivers Ultimate DJ Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-bring-your-text-to-life-techniques-for-3d-design-in-ps/"><u>[New] 2024 Approved Bring Your Text to Life Techniques for 3D Design in PS</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-the-ultimate-list-top-ps1-emulators-for-pc-gamers/"><u>[New] The Ultimate List Top PS1 Emulators for PC Gamers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ttml-xml-and-beyond-creating-flawless-srts-for-audio-files/"><u>[New] TTML, XML & Beyond Creating Flawless SRTs for Audio Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-role-of-analytics-in-youtube-shorts-management/"><u>[Updated] The Role of Analytics in YouTube Shorts Management</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/bot-phenomenon-uncovered-insights-into-chatbot-popularity/"><u>Bot Phenomenon Uncovered: Insights Into Chatbot Popularity</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/cost-saving-strategies-for-mobile-disc-jockeys-expert-price-guide/"><u>Cost-Saving Strategies for Mobile Disc Jockeys: Expert Price Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/diagnosing-the-mystery-understanding-speaker-pop-noises-insights-by-yl-computing/"><u>Diagnosing the Mystery: Understanding Speaker Pop Noises - Insights by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/hd-warrior-themed-wallpapers-and-desktop-backgrounds-high-quality-imagery-by-yl-computing/"><u>HD Warrior Themed Wallpapers & Desktop Backgrounds - High-Quality Imagery by YL Computing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-mobile-video-viewing-top-10-hd-players-on-android-for-2024/"><u>Mastering Mobile Video Viewing Top 10 HD Players on Android for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-league-of-legends-lag-for-a-smoother-gaming-experience/"><u>Resolving League of Legends Lag for a Smoother Gaming Experience</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/retro-inspired-ford-collection-premium-visual-graphics-by-yl-software-for-desktop-and-mobile-use/"><u>Retro-Inspired Ford Collection - Premium Visual Graphics by YL Software for Desktop and Mobile Use</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-your-scanners-connection-problems-a-step-by-step-guide-yl-computing/"><u>Solving Your Scanner's Connection Problems: A Step-by-Step Guide - YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/the-crucial-confrontation-at-red-cliffs-unveiling-its-role-in-moulding-chinese-history-a-yl-software-perspective/"><u>The Crucial Confrontation at Red Cliffs: Unveiling Its Role in Moulding Chinese History – A YL Software Perspective</u></a></li>
 </ul></div>
 

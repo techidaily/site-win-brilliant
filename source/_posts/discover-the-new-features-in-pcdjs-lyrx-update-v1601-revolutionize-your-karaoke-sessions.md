@@ -1,7 +1,7 @@
 ---
 title: Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!
-date: 2024-12-23T19:05:30.958Z
-updated: 2024-12-29T22:48:52.747Z
+date: 2025-01-04T22:33:27.784Z
+updated: 2025-01-09T09:30:55.632Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8a38e69f6bb6d23740b2b061d8fc927f2b1d57e63
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.2 of LYRX karaoke software is ready for download!
@@ -31,7 +31,7 @@ You can test software all you want internally, and iron out issues with your bet
 ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrx.png?fit=300%2C210&ssl=1 "LYRX 1.6.0.2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Not only does the free 1.6.0.2 LYRX update address the reported problems, we were able to apply extensive under-the-hood optimizations and performance improvements. The updates should be noticeable, to the extent your MAC or PC will run cooler than with prior versions.
@@ -45,7 +45,7 @@ Again, we appreciate all the tremendous and extensive feedback we’ve received 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.2
@@ -63,7 +63,7 @@ If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download fro
 _Have questions about the latest 1.6.0.2 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,16 +85,17 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover-1.jpg?fit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-cutting-edge-video-ideas-for-maximum-impact/"><u>[New] Cutting-Edge Video Ideas for Maximum Impact</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fb-flicks-grabber-tool/"><u>[New] In 2024, FB Flicks Grabber Tool</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-unlock-full-potential-of-zoom-in-windows-10/"><u>[New] Unlock Full Potential of Zoom in Windows 10</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-free-frame-conversion-tweeting-vids-into-animated-gifs/"><u>[Updated] In 2024, Free Frame Conversion Tweeting Vids Into Animated GIFs</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-unlock-creative-potential-strategic-use-of-strikethrough-for-2024/"><u>[Updated] Unlock Creative Potential Strategic Use of Strikethrough for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/download-pro-karaoke-program-access-the-latest-beta-version-of-karaoki-perfected-dj-experience/"><u>Download Pro Karaoke Program: Access the Latest Beta Version of Karaoki - Perfected DJ Experience!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-resolution-bmw-e60-m5-desktop-wallpaper-collection-premium-quality-graphics-by-yl-computing/"><u>High-Resolution BMW E60 M5 Desktop Wallpaper Collection - Premium Quality Graphics by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/maximize-computer-speed-a-step-by-step-guide-from-yl-software-experts/"><u>Maximize Computer Speed: A Step-by-Step Guide From YL Software Experts</u></a></li>
-<li><a href="https://techidaily.com/samsung-galaxy-xcover-7-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Samsung Galaxy XCover 7 support - Forgotten screen lock.</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/simplified-instructions-for-configuring-cron-jobs-using-yl-tools/"><u>Simplified Instructions for Configuring Cron Jobs Using YL Tools</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-audio-issues-how-to-fix-a-non-functional-sound-card-expert-advice-from-yl-computing/"><u>Troubleshooting Audio Issues: How to Fix a Non-Functional Sound Card - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-through-youtubes-content-id-system-issues/"><u>[New] In 2024, Navigating Through YouTube's Content ID System Issues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-essential-handheld-guide-to-youtube-production/"><u>[New] In 2024, The Essential Handheld Guide to YouTube Production</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pinnaclepix-z7-pro-elevate-your-photos-dimensions-for-2024/"><u>[Updated] PinnaclePix Z7 Pro Elevate Your Photo's Dimensions for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/3-effektive-methoden-zum-erstellen-eines-systemwiederherstellungsdatentragers-unter-windows-11-81-8-und-7-schritt-fur-schritt-anleitung/"><u>3 Effektive Methoden Zum Erstellen Eines Systemwiederherstellungsdatenträgers Unter Windows 11, 8.1, 8 Und 7 – Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/bestaanbouw-van-veiligheid-meest-effectieve-mogelijkheden-en-verder-buigen-groot-inleidingshandboek/"><u>Bestaanbouw Van Veiligheid: Meest Effectieve Mogelijkheden en Verder Buigen - Groot Inleidingshandboek</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/el-mejor-respaldo-de-particion-para-windows-compatible-con-las-versiones-11-10-8-y-7/"><u>El Mejor Respaldo De Partición Para Windows: Compatible Con Las Versiones 11, 10, 8 Y 7</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-13-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-vivo-s17-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Vivo S17 Data? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-economical-monoprice-artists-drawing-pad/"><u>In-Depth Analysis of the Economical Monoprice Artist's Drawing Pad</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-the-art-of-selfies-with-our-top-6-tips-for-selecting-a-quality-selfie-stick/"><u>Master the Art of Selfies with Our Top 6 Tips for Selecting a Quality Selfie Stick</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/stop-auto-updating-your-pc-in-windows-with-easy-tips-and-tricks/"><u>Stop Auto-Updating Your PC in Windows with Easy Tips and Tricks</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-1110872hdd/"><u>Windows 11/10/8/7での2台の外部HDD同期手順</u></a></li>
 </ul></div>
 
