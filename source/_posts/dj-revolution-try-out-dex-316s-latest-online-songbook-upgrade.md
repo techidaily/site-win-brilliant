@@ -1,7 +1,7 @@
 ---
 title: "DJ Revolution: Try Out DEX 3.16'S Latest Online Songbook Upgrade!"
-date: 2025-01-02T19:40:13.901Z
-updated: 2025-01-09T11:26:20.483Z
+date: 2025-01-12T02:46:49.253Z
+updated: 2025-01-14T22:44:49.585Z
 tags:
   - product
 categories:
@@ -39,25 +39,25 @@ OK, enough for the serious stuff — you want to download and test!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Overview of how to use the new KSR System in DEX 3.16 RC1:
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1 "Login Screen")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1) Open up DEX 3.16 and click the Options button. Under the “Karaoke” tab, click on the “Login to KSR” button. 
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/clickregister-signup-2ndslide.jpg?fit=1030%2C575&ssl=1 "Click Register")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/clickregister-signup-2ndslide.jpg?fit=1030%2C575&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2) Click on the “Register / Sign Up” Option. 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/create-account-register-3rdslide.jpg?fit=1030%2C575&ssl=1 "Create Account")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/create-account-register-3rdslide.jpg?fit=1030%2C575&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3) Create your account and click “Register”. 
 
@@ -71,17 +71,25 @@ OK, enough for the serious stuff — you want to download and test!
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1 "Restart")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6) Restart DEX 3\. 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/dragsongsintokaraokecataloglist-7thslide.jpg?fit=1030%2C575&ssl=1 "create list")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/dragsongsintokaraokecataloglist-7thslide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 7) Add your own karaoke music to the “Karaoke Catalog” special list (located under Special Lists). You can select all your karaoke songs and drag/drop to the list to populate it, or only the karaoke songs you wish to share with singers (currently capped at 100,000 total songs). 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/backintooptions-clickupdate-KSR-songbook-namesongbook-8thslide.jpg?fit=1030%2C575&ssl=1 "upload songbook")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/backintooptions-clickupdate-KSR-songbook-namesongbook-8thslide.jpg?fit=1030%2C575&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 8) Go into DEX 3’s options and under the “Karaoke” tab click the “Update KSR Songbook” button to sync your list of karaoke music. You will be asked to add a venue/songbook name. Create a unique name and click “OK”. 
 
@@ -91,19 +99,11 @@ OK, enough for the serious stuff — you want to download and test!
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/requestsreceived-10thslide.jpg?fit=1030%2C575&ssl=1 "Request Received")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/requestsreceived-10thslide.jpg?fit=1030%2C575&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 10) When a singer submits a song request you will be notified in DEX 3’s singer rotation list. Click “Accept” to accept the request and the singer/song will be submitted into rotation. That’s it! 
 
 \] 
 
 [![](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/image_123986672-5.jpg?fit=326%2C705&ssl=1 "image_123986672 (5)")](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/image%5F123986672-5.jpg?fit=476%2C1030&ssl=1 "image_123986672 (5)")[![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image_123986672-4.jpg?fit=326%2C705&ssl=1 "image_123986672 (4)")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image%5F123986672-4.jpg?fit=476%2C1030&ssl=1 "image_123986672 (4)")[![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image_123986672-3.jpg?fit=326%2C705&ssl=1 "image_123986672 (3)")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image%5F123986672-3.jpg?fit=476%2C1030&ssl=1 "image_123986672 (3)")[![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/image_123986672-2.jpg?fit=326%2C705&ssl=1 "image_123986672 (2)")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/image%5F123986672-2.jpg?fit=476%2C1030&ssl=1 "image_123986672 (2)")[![](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/image_123986672-1.jpg?fit=326%2C705&ssl=1 "image_123986672 (1)")](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/image%5F123986672-1.jpg?fit=476%2C1030&ssl=1 "image_123986672 (1)")[![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image_123986672.jpg?fit=326%2C705&ssl=1 "image_123986672")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image%5F123986672.jpg?fit=476%2C1030&ssl=1 "image_123986672")[![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image_123986672-6.jpg?fit=326%2C705&ssl=1 "image_123986672 (6)")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/image%5F123986672-6.jpg?fit=476%2C1030&ssl=1 "image_123986672 (6)")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The screenshots displayed above are of the ‘ KSR web app’ that your karaoke singers will use to access your online karaoke songbook and submit song requests. They simply need to visit [ksr.pcdj.com](https://tools.techidaily.com/pcdj/products/) and create a free account, type in your songbook ID, and they’re ready to browse, search, and send in requests. They also add songs to their own personal ‘Favorites” folder within the web app. Why a web app? No need for your singers to install iOS or Android apps — any web enabled device will work!
 
@@ -130,24 +130,17 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/ksr-coverimage-1.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-playbackquality-diagnosis-for-2024/"><u>[New] PlaybackQuality Diagnosis for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-earning-potential-unleashed-monetizing-fb-pages-effectively-for-2024/"><u>[Updated] Earning Potential Unleashed Monetizing FB Pages Effectively for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-the-art-of-acquiring-yt-channel-revenue/"><u>[Updated] Mastering the Art of Acquiring YT Channel Revenue</u></a></li>
-<li><a href="https://media-tips.techidaily.com/1-fix-your-4k-streaming-issues-troubleshoot-and-resolve-airplay-not-working/"><u>1. Fix Your 4K Streaming Issues: Troubleshoot and Resolve AirPlay Not Working</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-breaking-into-livestreaming-your-pathway-to-youtube-and-twitch-via-obs/"><u>2024 Approved Breaking Into Livestreaming Your Pathway to YouTube & Twitch via OBS</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/font-fusion-merging-style-and-content-in-after-effects-for-2024/"><u>Font Fusion Merging Style & Content in After Effects for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/guide-to-sending-and-getting-imessages-on-windows-pcs-tips-from-zdnet/"><u>Guide to Sending & Getting iMessages on Windows PCs - Tips From ZDNet</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Tecno Phantom V Fold? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-configuring-your-internet-settings-via-windows-control-panel-expert-advice-by-yl-computing/"><u>Step-by-Step Guide: Configuring Your Internet Settings via Windows Control Panel - Expert Advice by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-setting-your-system-clock-and-time-zone-in-windows-yl-software-solutions/"><u>Step-by-Step Guide: Setting Your System Clock & Time Zone in Windows - YL Software Solutions</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-nokia-g22-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Nokia G22 for Parents | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-the-causes-of-your-pcs-overheating-issues-insights-from-yl-computing/"><u>Understanding the Causes of Your PC's Overheating Issues - Insights From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-youtube-studio-masterclass-elevating-your-edits/"><u>[New] The YouTube Studio Masterclass Elevating Your Edits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-innovative-fb-ad-campaigns-boosting-patient-care/"><u>[Updated] In 2024, Innovative FB Ad Campaigns Boosting Patient Care</u></a></li>
+<li><a href="https://techtrends.techidaily.com/dvd-windows-11top10/"><u>「快適なDVDコピー: Windows 11で使える最新フリーソフトウェアTOP10」</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728507376844-windows-11-3/"><u>如何在升级到 Windows 11 时保护数据：3 个有效的方法</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/5pit5a245ywn6lk75oyh5y2x77ya5aac5l2v6ksh6ko956gs56kf5lit55qe5lia6zq75yiw5yplusm5lia6zq7/"><u>易學免費指南：如何複製硬碟中的一隻到另一隻</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/a-guide-to-selecting-top-ranked-software-for-hard-drive-partition-repair/"><u>A Guide to Selecting Top-Ranked Software for Hard Drive Partition Repair</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/comment-recuperer-des-fichiers-supprimes-avec-autopsy/"><u>Comment Récupérer Des Fichiers Supprimés Avec Autopsy?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effortless-solutions-for-fixing-skypes-sound-malfunctions/"><u>Effortless Solutions for Fixing Skype's Sound Malfunctions</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/find-and-install-amd-rx-ultimate-downloading-guide-for-windows-11-10-8-and-7/"><u>Find and Install AMD RX 지원 드라이버: Ultimate Downloading Guide for Windows 11, 10, 8 & 7!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/seamless-configuration-transfer-simplified-strategies-for-exporting-and-importing-settings/"><u>Seamless Configuration Transfer: Simplified Strategies for Exporting and Importing Settings</u></a></li>
+<li><a href="https://techidaily.com/sharing-strategies-for-interactions-with-bard-ai-tips-and-techniques/"><u>Sharing Strategies for Interactions with Bard AI – Tips and Techniques</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-nostalgic-return-how-beige-computers-are-making-a-modern-day-resurgence/"><u>The Nostalgic Return: How Beige Computers Are Making A Modern-Day Resurgence</u></a></li>
 </ul></div>
 

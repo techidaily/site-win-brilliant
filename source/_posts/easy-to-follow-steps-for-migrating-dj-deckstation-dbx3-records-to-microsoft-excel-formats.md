@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2025-01-01T22:34:38.138Z
-updated: 2025-01-08T16:08:57.992Z
+date: 2025-01-12T16:02:24.314Z
+updated: 2025-01-15T01:16:34.328Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,22 +46,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-podcasts-vs-youtube-which-should-you-choose/"><u>[New] In 2024, Podcasts Vs. YouTube Which Should You Choose?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-simple-steps-to-coordinate-consistent-productive-google-collaboration-times/"><u>[New] In 2024, Simple Steps to Coordinate Consistent, Productive Google Collaboration Times</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-breaking-down-the-process-of-livestreaming-online/"><u>[Updated] 2024 Approved Breaking Down the Process of Livestreaming Online</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-ultimate-guide-to-selecting-best-windows-screen-capture-tools-for-2024/"><u>[Updated] Ultimate Guide to Selecting Best Windows Screen Capture Tools for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728507376844-windows-11-3/"><u>如何在升级到 Windows 11 时保护数据：3 个有效的方法</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/5pit5a245ywn6lk75oyh5y2x77ya5aac5l2v6ksh6ko956gs56kf5lit55qe5lia6zq75yiw5yplusm5lia6zq7/"><u>易學免費指南：如何複製硬碟中的一隻到另一隻</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/a-guide-to-selecting-top-ranked-software-for-hard-drive-partition-repair/"><u>A Guide to Selecting Top-Ranked Software for Hard Drive Partition Repair</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comandi-facile-e-gratis-da-usare-in-cmd-per-ripristinare-i-file-dallhard-disk/"><u>Comandi Facile E Gratis Da Usare in CMD per Ripristinare I File Dall'Hard Disk</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comment-recuperer-des-fichiers-supprimes-avec-autopsy/"><u>Comment Récupérer Des Fichiers Supprimés Avec Autopsy?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/converting-physical-drives-to-virtual-machines-made-easy-using-disk2vhd-a-comprehensive-tutorial/"><u>Converting Physical Drives to Virtual Machines Made Easy Using Disk2VHD - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/guide-complet-comment-recuperer-facilement-une-partition-egaree-sur-windows-10-ou-11-en-quatre-simples-etapes/"><u>Guide Complet: Comment Récupérer Facilement Une Partition Égarée Sur Windows 10 Ou 11 en Quatre Simples Etapes</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-realme-narzo-n53-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Realme Narzo N53 to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-beat-the-standard-a-complete-tutorial-for-adding-ringtones-and-sounds-to-android/"><u>In 2024, Beat the Standard A Complete Tutorial for Adding Ringtones & Sounds to Android</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/logitech-g27-driver-setup-for-win-11-win-10-and-win-7-computers-download-here/"><u>Logitech G27 Driver Setup for Win 11, Win 10 and Win 7 Computers - Download Here</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/seamless-configuration-transfer-simplified-strategies-for-exporting-and-importing-settings/"><u>Seamless Configuration Transfer: Simplified Strategies for Exporting and Importing Settings</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/understanding-the-basics-a-comprehensive-guide-to-the-m4v-video-file-format/"><u>Understanding the Basics: A Comprehensive Guide to the M4V Video File Format</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-your-razer-devices-easily-with-compatible-drivers-in-windows-os-10-8-7-xp-and-vista/"><u>Update Your Razer Devices Easily with Compatible Drivers in Windows OS (10, 8, 7, XP & Vista)</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guide-complet-restaurer-les-informations-dun-ordinateur-avec-windows-endommage/"><u>« Guide Complet: Restaurer Les Informations D'un Ordinateur Avec Windows Endommagé »</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-key-fixes-for-stabilizing-windows-10-photos-display/"><u>[New] Key Fixes for Stabilizing Windows 10 Photos Display</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-essential-handheld-guide-to-youtube-production/"><u>[Updated] 2024 Approved The Essential Handheld Guide to YouTube Production</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-ethical-engagement-sustainable-strategies-for-content-creeps/"><u>2024 Approved Ethical Engagement Sustainable Strategies for Content Creeps</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/outlook-201n-pst/"><u>簡單方法：Outlook 201N中迅速保存 PST 文件的全面指南</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/accelerate-your-vmware-virtual-machines-a-comprehensive-guide-with-7-effective-strategies/"><u>Accelerate Your VMware Virtual Machines: A Comprehensive Guide with 7 Effective Strategies</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/download-and-save-dailymotion-playlist-as-video-files-in-mp4-wmv-avi-or-mov-on-macoswindows-systems/"><u>Download and Save DailyMotion Playlist as Video Files in MP4, WMV, AVI or MOV on MacOS/Windows Systems</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/estrategias-para-hacer-copia-de-seguridad-y-clonacion-total-del-disco-duro-usando-aomei-backupper/"><u>Estrategias Para Hacer Copia De Seguridad Y Clonación Total Del Disco Duro Usando AOMEI Backupper</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/fehlerbehebung-die-option-zum-aktualisieren-nicht-verfugbar-in-windows-10-gelost/"><u>Fehlerbehebung: Die Option Zum Aktualisieren Nicht Verfügbar in Windows 10 Gelöst</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-leave-a-life360-group-on-itel-s23plus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Itel S23+ Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-depth-steps-using-mobizen-for-smooth-screen-recording-for-2024/"><u>In-Depth Steps Using Mobizen for Smooth Screen Recording for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/reclaiming-your-data-effective-strategies-for-retrieving-deletedunsaved-wordpad-docs/"><u>Reclaiming Your Data: Effective Strategies for Retrieving Deleted/Unsaved WordPad Docs</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ssd-steam/"><u>SSDへスムーズに移行! Steam ゲームマニュアル: 最新４手順ガイド</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-8-collaborative-video-collage-apps-for-android-users-freepaid-for-2024/"><u>Top 8 Collaborative Video Collage Apps for Android Users (Free/Paid) for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-cricket-ultimate-guide-to-live-streaming-selection/"><u>Top Cricket Ultimate Guide to Live Streaming Selection</u></a></li>
+<li><a href="https://program-issues.techidaily.com/what-to-expect-from-rainbow-six-siege-no-new-features-revealed/"><u>What to Expect From Rainbow Six Siege : No New Features Revealed</u></a></li>
 </ul></div>
 

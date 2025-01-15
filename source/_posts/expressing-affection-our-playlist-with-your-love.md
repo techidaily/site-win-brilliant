@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2025-01-06T02:31:51.013Z
-updated: 2025-01-09T07:13:06.497Z
+date: 2025-01-10T07:19:54.157Z
+updated: 2025-01-15T06:48:08.146Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,15 +60,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-ace-your-messaging-must-know-advanced-tricks-and-techniques-in-whatsapp/"><u>[New] In 2024, Ace Your Messaging Must-Know Advanced Tricks and Techniques in WhatsApp</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-dial-in-the-ideal-aspect-ratio-for-stunning-youtube-videos/"><u>[Updated] Dial in the Ideal Aspect Ratio for Stunning YouTube Videos</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-tech-at-its-best-why-the-moto-g-stylus-deserves-your-attention-a-full-length-review/"><u>Affordable Tech at Its Best – Why the Moto G Stylus Deserves Your Attention: A Full-Length Review</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-foremost-6-online-spaces-dominating-b2b-interactions/"><u>In 2024, Foremost 6 Online Spaces Dominating B2B Interactions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/setting-up-family-safety-features-on-your-pc-a-step-by-step-guide-windows-yl-computing/"><u>Setting Up Family Safety Features on Your PC: A Step-by-Step Guide (Windows) - YL Computing</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/steelseries-gaming-mouse-drivers-free-downloads-available/"><u>SteelSeries Gaming Mouse Drivers - Free Downloads Available</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-navigating-and-opening-file-folders-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Navigating and Opening File Folders on Windows - Tips From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/galii-asabthha-pahaca-ka-mathatha-aaikanalka-vapasa-ka-le-taraka-para-vashashhajaniata/"><u>गोलाई / असंबंधी पहुंचें का मुद्दा: आइकन/लिंक वापसी के लिए तर्क पर विशेषज्ञता</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gastronomy-goals-attractive-food-network-branding-ideas/"><u>[New] 2024 Approved Gastronomy Goals Attractive Food Network Branding Ideas</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-comprehensive-guide-to-creating-movies-not-just-youtube/"><u>[New] The Comprehensive Guide to Creating Movies, Not Just YouTube</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovating-visual-storytelling-through-photo-mosaics/"><u>2024 Approved Innovating Visual Storytelling Through Photo Mosaics</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-animators-companion-expertly-reviewed-3d-modeling-software/"><u>2024 Approved The Animator's Companion Expertly Reviewed 3D Modeling Software</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/dragon-ball-marathon-mastery-how-to-binge-the-series-correctly/"><u>Dragon Ball Marathon Mastery: How to Binge the Series Correctly</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expert-tips-for-securely-archiving-your-iphoto-collection/"><u>Expert Tips for Securely Archiving Your iPhoto Collection</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-exploring-new-design-dimensions-integrating-typesetting-into-ae/"><u>In 2024, Exploring New Design Dimensions Integrating Typesetting Into AE</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-text-formatting-how-to-insert-lines-seamlessly-in-word/"><u>Mastering Text Formatting: How to Insert Lines Seamlessly in Word</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/passwordegesteuerte-schutzmassnahmen-fur-ihre-ordnere-auf-dropbox/"><u>Passwordegesteuerte Schutzmaßnahmen Für Ihre Ordnere Auf Dropbox</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/prosedur-deteksi-dan-restorasi-partisi-ext3-dalam-operating-system-windows-11-10/"><u>Prosedur Deteksi Dan Restorasi Partisi Ext3 Dalam Operating System Windows 11 / 10</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/seamless-transfer-of-iphone-images-directly-to-exfat-storage-device-by-bypassing-the-desktop-system/"><u>Seamless Transfer of iPhone Images Directly to ExFAT Storage Device by Bypassing the Desktop System</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-guide-how-to-restore-missing-quick-access-icons-on-your-desktop-6-steps/"><u>Troubleshooting Guide: How To Restore Missing Quick Access Icons On Your Desktop (6 Steps)</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-successfully-setting-up-battleye-service/"><u>Troubleshooting Tips: Successfully Setting Up BattlEye Service</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tutorial-mise-a-jour-du-disque-premium-bootable-vers-un-ssd-pour-une-demarrage-accelere-sous-windows-10/"><u>Tutorial : Mise À Jour Du Disque Premium Bootable Vers Un SSD Pour Une Démarrage Accéléré Sous Windows 10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unveiling-the-art-of-chromatic-mastery-in-video-editing-11-steps/"><u>Unveiling the Art of Chromatic Mastery in Video Editing (11 Steps)</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728465300466-onedrive/"><u>スムーズな移行: ネットワークフォルダとOneDriveを同期する手順</u></a></li>
 </ul></div>
 

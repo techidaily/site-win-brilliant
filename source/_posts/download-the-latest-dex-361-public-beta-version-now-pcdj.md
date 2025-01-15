@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX 3.6.1 Public Beta Version Now - PCDJ
-date: 2025-01-04T03:52:07.853Z
-updated: 2025-01-09T10:43:06.760Z
+date: 2025-01-09T21:15:59.829Z
+updated: 2025-01-15T05:06:38.724Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ _**NOTE:** Since version 3.6.1 is a public beta and [DJ software](https://tools.
 _Have questions about DEX 3.6.1 DJ, **video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,22 +60,16 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-swiftly-secure-screen-shots-on-windows/"><u>[New] Swiftly Secure Screen Shots on Windows</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-tap-into-endless-visual-archives-from-top-4-video-platforms/"><u>[New] Tap Into Endless Visual Archives From Top 4 Video Platforms</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-reveal-the-disenchanted-instagrams-unfollowers/"><u>[Updated] 2024 Approved Reveal the Disenchanted Instagram's Unfollowers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-synchronizing-melodies-with-inshot-clips/"><u>[Updated] 2024 Approved Synchronizing Melodies with InShot Clips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-top-10-online-subtitle-extractors-for-budget-friendly-viewers/"><u>[Updated] Top 10 Online Subtitle Extractors for Budget-Friendly Viewers</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/bluetooth-mouse-troubles-restore-functionality-on-windows-with-these-easy-fixes/"><u>Bluetooth Mouse Troubles? Restore Functionality on Windows with These Easy Fixes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-the-purpose-and-application-of-hugging-face-in-ai/"><u>Decoding the Purpose and Application of Hugging Face in AI</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-honor-x9b-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Honor X9b</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-strategic-steps-for-a-million-viewing-video-masterpiece/"><u>In 2024, Strategic Steps for a Million-Viewing Video Masterpiece</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/premium-high-res-ferrari-f12-berlinetta-desktop-backgrounds-from-yl-software-rev-up-your-pc-decor/"><u>Premium High-Res Ferrari F12 Berlinetta Desktop Backgrounds From YL Software: Rev Up Your PC Décor</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/sec-consultation-on-bitcoin-etf-a-look-inside-yl-computing-and-hashdexs-innovative-proposal/"><u>SEC Consultation on Bitcoin ETF: A Look Inside YL Computing & Hashdex's Innovative Proposal 🌐✨</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-configuring-your-internet-settings-via-windows-control-panel-expert-advice-by-yl-computing/"><u>Step-by-Step Guide: Configuring Your Internet Settings via Windows Control Panel - Expert Advice by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-setting-your-system-clock-and-time-zone-in-windows-yl-software-solutions/"><u>Step-by-Step Guide: Setting Your System Clock & Time Zone in Windows - YL Software Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-youtube-editing-101-incorporating-time-markers/"><u>[New] 2024 Approved YouTube Editing 101 Incorporating Time Markers</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-use-windows-defender-on-a-mac-machine-insights-from-yl-computing/"><u>Can You Use Windows Defender on a Mac Machine? - Insights From YL Computing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-hype-to-highlighted-the-art-of-editing-hauls/"><u>From Hype to Highlighted The Art of Editing Hauls</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-fix-an-unresponsive-printer-quickly-and-effectively-yl-software-expertise-inside/"><u>How to Fix an Unresponsive Printer Quickly & Effectively, YL Software Expertise Inside!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-set-a-new-standard-printer-in-windows-tips-from-yl-software-experts/"><u>How To Set a New Standard Printer In Windows: Tips From YL Software Experts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-accelerated-learning-for-chromakey-artistry/"><u>In 2024, Accelerated Learning for Chromakey Artistry</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-how-to-download-igtv-videos-on-windows-pcmac-5-ways/"><u>In 2024, How to Download IGTV Videos on Windows PC/Mac? [5 Ways]</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/revealing-secrets-in-compressed-formats-how-to-access-zip-archive-content-with-yl-tech-advice/"><u>Revealing Secrets in Compressed Formats: How to Access Zip Archive Content with YL Tech Advice</u></a></li>
+<li><a href="https://win11.techidaily.com/streamlining-system-checks-a-guide-for-updating-context-menus/"><u>Streamlining System Checks: A Guide for Updating Context Menus</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-vivo-y100-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Vivo Y100 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-the-rise-to-power-a-look-at-how-the-sui-empire-gained-dominance-over-china-yl-software/"><u>Understanding the Rise to Power: A Look at How the Sui Empire Gained Dominance Over China – YL Software</u></a></li>
 </ul></div>
 

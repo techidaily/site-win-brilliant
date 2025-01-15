@@ -1,7 +1,7 @@
 ---
 title: Discover the Latest Version of LYRX Karaoke Software (v1.5) - Improved Features and Performance!
-date: 2025-01-08T08:08:54.429Z
-updated: 2025-01-08T18:53:43.107Z
+date: 2025-01-12T18:12:15.236Z
+updated: 2025-01-14T19:02:49.653Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Fixed, and Updated in LYRX 1.5
@@ -48,7 +48,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 _Have questions about the latest 1.5 version of our LYRX **karaoke player**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -70,18 +70,20 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2019/07/lyrx15-cover.jpg?fit=706%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-bring-your-text-to-life-techniques-for-3d-design-in-ps/"><u>[New] 2024 Approved Bring Your Text to Life Techniques for 3D Design in PS</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-the-ultimate-list-top-ps1-emulators-for-pc-gamers/"><u>[New] The Ultimate List Top PS1 Emulators for PC Gamers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-ttml-xml-and-beyond-creating-flawless-srts-for-audio-files/"><u>[New] TTML, XML & Beyond Creating Flawless SRTs for Audio Files</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-role-of-analytics-in-youtube-shorts-management/"><u>[Updated] The Role of Analytics in YouTube Shorts Management</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/bot-phenomenon-uncovered-insights-into-chatbot-popularity/"><u>Bot Phenomenon Uncovered: Insights Into Chatbot Popularity</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/cost-saving-strategies-for-mobile-disc-jockeys-expert-price-guide/"><u>Cost-Saving Strategies for Mobile Disc Jockeys: Expert Price Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/diagnosing-the-mystery-understanding-speaker-pop-noises-insights-by-yl-computing/"><u>Diagnosing the Mystery: Understanding Speaker Pop Noises - Insights by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/hd-warrior-themed-wallpapers-and-desktop-backgrounds-high-quality-imagery-by-yl-computing/"><u>HD Warrior Themed Wallpapers & Desktop Backgrounds - High-Quality Imagery by YL Computing</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-mobile-video-viewing-top-10-hd-players-on-android-for-2024/"><u>Mastering Mobile Video Viewing Top 10 HD Players on Android for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-league-of-legends-lag-for-a-smoother-gaming-experience/"><u>Resolving League of Legends Lag for a Smoother Gaming Experience</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/retro-inspired-ford-collection-premium-visual-graphics-by-yl-software-for-desktop-and-mobile-use/"><u>Retro-Inspired Ford Collection - Premium Visual Graphics by YL Software for Desktop and Mobile Use</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-your-scanners-connection-problems-a-step-by-step-guide-yl-computing/"><u>Solving Your Scanner's Connection Problems: A Step-by-Step Guide - YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/the-crucial-confrontation-at-red-cliffs-unveiling-its-role-in-moulding-chinese-history-a-yl-software-perspective/"><u>The Crucial Confrontation at Red Cliffs: Unveiling Its Role in Moulding Chinese History – A YL Software Perspective</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-should-you-keep-previewing-fb-activity-visible-insights-for-2024/"><u>[New] Should You Keep Previewing FB Activity Visible? Insights for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-14-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From Apple iPhone 14</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/get-your-hands-on-the-new-pcdj-dex-update-v36-beta-4-available-for-download/"><u>Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/global-warming-or-just-hot-summers-climate-clarity/"><u>Global Warming or Just Hot Summers? Climate Clarity</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-7-plus-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 7 Plus?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-sites-for-downloading-desired-youtube-ringtones/"><u>In 2024, Top Sites for Downloading Desired YouTube Ringtones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/leading-tools-for-clear-uncompromised-4k-recordings-for-2024/"><u>Leading Tools for Clear, Uncompromised 4K Recordings for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-device-efficiency-a-guide-by-yl-computing-on-configuring-power-options/"><u>Mastering Device Efficiency: A Guide by YL Computing on Configuring Power Options</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/new-dj-mixing-software-release-pcdj-dex-v31-available-for-instant-download/"><u>New DJ Mixing Software Release: PCDJ DeX v3.1, Available for Instant Download!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-adjusting-your-pcs-display-preferences-via-windows-yl-computing-solutions/"><u>Step-by-Step Guide: Adjusting Your PC's Display Preferences via Windows - YL Computing Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-by-yl-software-resolving-issues-with-malfunctioning-ram-units/"><u>Ultimate Guide by YL Software: Resolving Issues with Malfunctioning RAM Units</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/uncover-the-10-best-makeup-experts-on-youtube-you-cant-ignore-for-2024/"><u>Uncover the 10 Best Makeup Experts on YouTube You Can't Ignore for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/wie-kann-ich-ungewiesene-festplattenpartitionen-wiederherstellen-myrecovery-guide/"><u>Wie Kann Ich Ungewiesene Festplattenpartitionen Wiederherstellen - MyRecovery Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-vs-windows-10-vs-windows-7-which-version-should-you-upgrade-to/"><u>Windows 11 Vs. Windows 10 Vs. Windows 7 - Which Version Should You Upgrade To?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/xiaomi-redmi-a2-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Xiaomi Redmi A2 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 </ul></div>
 

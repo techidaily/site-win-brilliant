@@ -1,7 +1,7 @@
 ---
 title: Inside Look at Revolutionary Features for Coming-Soon Pioneer DJ's Dexterity (DEX) 4 Software Update
-date: 2025-01-06T01:28:17.873Z
-updated: 2025-01-08T18:57:34.731Z
+date: 2025-01-11T22:49:31.468Z
+updated: 2025-01-14T22:44:42.293Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Additionally, the introduction of PADs with versatile modes like Loop Rolls, Sli
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DEX 4 Feature Highlights:
@@ -64,7 +64,7 @@ this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see
 * new controller: RANE Four
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other features:
@@ -91,7 +91,7 @@ this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see
 **_Stay tuned, we expect to drop DEX 4 very soon!_** 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -113,22 +113,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2024/08/DEX34-preview-cover.jpg?fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-best-badge-cleaners-for-tiktok-on-mobile-tech/"><u>[New] 2024 Approved The Best Badge Cleaners for TikTok on Mobile Tech</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-transform-your-account-with-these-10-must-have-ig-tools/"><u>[New] Transform Your Account with These 10 Must-Have IG Tools</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-kid-friendly-quadcopters-top-5-selection-guide/"><u>[Updated] Kid-Friendly Quadcopters Top 5 Selection Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-video-anonymization-strategies-for-2024/"><u>[Updated] Video Anonymization Strategies for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/44cm5osp5asw44gq57ch5y2y77yb44ov44kh44kk44or44gm5rai44gi44gf44gc44go44gn44kc44cb44gp44gg44ke44gj44gm44oh44o844k44ks5pwr44gi44kl77yf44cn/"><u>「意外な簡単！ファイルが消えたあとでも、どうやってデータを救える？」</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comment-faites-vous-echanger-votre-documents-sur-deux-pc-top-strategies-a-utiliser/"><u>Comment Faites-Vous Echanger Votre Documents Sur Deux Pc : Top Stratégies À Utiliser</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/compatible-with-windows-11-learn-how-to-operate-handbrake-seamlessly/"><u>Compatible with Windows 11: Learn How to Operate Handbrake Seamlessly</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-v30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo V30 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-protect-your-work-on-a-portable-pc-secure-backups-for-lenovo-users-running-windows-11/"><u>How to Protect Your Work on a Portable PC: Secure Backups for Lenovo Users Running Windows 11</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/methodes-fiables-pour-restaurer-un-systeme-en-usine-dell-sur-windows-111087-sans-risques/"><u>Méthodes Fiables Pour Restaurer Un Système en Usine Dell Sur Windows 11/10/8/7 Sans Risques</u></a></li>
-<li><a href="https://win-able.techidaily.com/quick-solutions-when-minecraft-wont-start-up-correctly/"><u>Quick Solutions: When Minecraft Won't Start Up Correctly</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-pc-game-file-corruption-issues-updated-techniques-for-2eplust4/"><u>Resolving PC Game File Corruption Issues - Updated Techniques for 2E+t4</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/reviving-lost-photoshop-projects-a-step-by-step-guide/"><u>Reviving Lost Photoshop Projects: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/seamless-integration-autorisation-automatique-de-synchronisation-donedrive-sur-windows-11/"><u>Seamless Integration : Autorisation Automatique De Synchronisation D'OneDrive Sur Windows 11</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-hotmail-backup-pro-for-windows/"><u>Windowsで使うホットメール専用の究極のバックアップソフトウェア - Hotmail Backup Pro for Windows</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728462171880-5/"><u>デスクトップで失われたファイルを簡易的に回収する5つのテクニック</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-customize-your-youtube-view-adjust-speed-settings/"><u>[New] Customize Your YouTube View Adjust Speed Settings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-chart-your-course-navigating-the-waters-of-youtube-subscription-surges/"><u>[New] In 2024, Chart Your Course Navigating the Waters of YouTube Subscription Surges</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-your-monetary-gains-from-mobile-youtube-channels-2024-guide/"><u>[New] Maximizing Your Monetary Gains From Mobile YouTube Channels - 2024 Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-pathway-to-visual-storytelling-through-gifs/"><u>[Updated] The Pathway to Visual Storytelling Through GIFs</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/csv3/"><u>「CSVデータ失われるのを防ぐ無料ツールトップ3」</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-ipados-paint-the-creme-de-la-creation-apps/"><u>2024 Approved IPadOS Paint The Crème De La Création Apps</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/aktuelle-fehlerbehebungen-entfernung-von-youtube-inhalten-fur-die-jahre-2021-bis-2024/"><u>Aktuelle Fehlerbehebungen: Entfernung Von YouTube-Inhalten Für Die Jahre 2021 Bis 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-home-entertainment-amazing-amazon-basics-soundbar/"><u>Budget-Friendly Home Entertainment: Amazing Amazon Basics Soundbar</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Life360 Notify When You Log Out On Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-the-hyper-v-os-load-failure-solutions-for-missing-operating-system-issues/"><u>Understanding the 'Hyper-V OS Load Failure': Solutions for Missing Operating System Issues</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vanuit-ongelukkig-gegaan-hoe-uw-reconstructieverzoek-naar-voorraad-is-aangeklapt/"><u>Vanuit Ongelukkig Gegaan... Hoe Uw Reconstructieverzoek Naar Voorraad Is Aangeklapt!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-110x8000ffff/"><u>Windows 11で発生した困難なエラー0x8000ffffを克服する方法</u></a></li>
 </ul></div>
 

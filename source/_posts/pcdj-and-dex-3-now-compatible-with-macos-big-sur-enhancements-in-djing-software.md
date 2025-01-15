@@ -1,7 +1,7 @@
 ---
 title: "PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software"
-date: 2025-01-05T02:23:46.558Z
-updated: 2025-01-09T08:09:07.346Z
+date: 2025-01-10T07:09:17.465Z
+updated: 2025-01-14T18:56:05.081Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ Unlike macOS Catalina, which did require DEX 3 DJs to wait on upgrading for a fe
 If you haven’t already, [download and try the latest DEX 3.15 DJ software release](https://tools.techidaily.com/pcdj/products/) with macOS Big Sur, now with support for [Beatport LINK and Beatsource LINK](https://tools.techidaily.com/pcdj/products/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,15 +44,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/11/macOS-Big-Sur-800x450.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-analyzing-the-full-range-of-obs-studios-capabilities/"><u>[New] 2024 Approved Analyzing the Full Range of OBS Studio's Capabilities</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-becoming-a-youtube-pro-the-ultimate-picture-post-guide/"><u>[New] Becoming a YouTube Pro The Ultimate Picture Post Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlock-the-6th-richest-strategies-for-successful-ig/"><u>[Updated] Unlock the 6Th Richest Strategies for Successful IG</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-panoramic-insights-digest/"><u>2024 Approved Panoramic Insights Digest</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-you-detect-gpu-malfunctions-from-afar-unveiling-remote-troubleshooting-techniques-with-yl-computing/"><u>Can You Detect GPU Malfunctions From Afar? Unveiling Remote Troubleshooting Techniques with YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/download-free-high-quality-hd-honda-hr-v-image-backgrounds-yl-computings-exclusive-collection/"><u>Download Free High-Quality HD Honda HR-V Image Backgrounds - YL Computing's Exclusive Collection</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhanced-online-engagement-through-smart-cookiebot-strategies/"><u>Enhanced Online Engagement Through Smart Cookiebot Strategies</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/enhanced-singing-experience-to-attract-those-looking-for-a-better-karaoke-software-experience-and-includes-relevant-keywords-such-as-lyrx-karaoke-software-u82/"><u>Enhanced Singing Experience to Attract Those Looking for a Better Karaoke Software Experience and Includes Relevant Keywords Such as LYRX Karaoke Software Update.</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-tackling-the-mystery-of-missing-shorts-video-images/"><u>In 2024, Tackling the Mystery of Missing Shorts Video Images</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mastering-device-efficiency-a-guide-by-yl-computing-on-configuring-power-options/"><u>Mastering Device Efficiency: A Guide by YL Computing on Configuring Power Options</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-free-extraction-of-youtube-desktops/"><u>[New] In 2024, Effortless Free Extraction of YouTube Desktops</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-game-up-your-content-with-these-effective-freefire-video-hashtags/"><u>[Updated] 2024 Approved Game Up Your Content with These Effective FreeFire Video Hashtags</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/10-sound-boosting-software-pc-mac-and-mobile-for-2024/"><u>Best 10 Sound Boosting Software PC, Mac & Mobile for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/come-superare-i-problemi-di-reproduzione-dei-file-mkv-su-pc-e-mac/"><u>Come Superare I Problemi Di Reproduzione Dei File MKV Su PC E Mac</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/comprehensive-guide-for-copying-laptop-storage-onto-a-portable-external-drive/"><u>Comprehensive Guide for Copying Laptop Storage Onto a Portable External Drive</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/comprendere-i-differentianti-tra-il-backup-e-la-clonazione-dei-dispositivi-di-archiviazione-tipi-vantaggi-and-sviluppi/"><u>Comprendere I Differentianti Tra Il Backup E La Clonazione Dei Dispositivi Di Archiviazione: Tipi, Vantaggi & Sviluppi</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-mac-x-mkv-transcoder-hassle-free-high-definition-video-conversion-for-macos-users/"><u>Free Mac X MKV Transcoder: Hassle-Free High Definition Video Conversion for macOS Users</u></a></li>
+<li><a href="https://win-studio.techidaily.com/how-can-you-benchmark-your-pcs-hardware-for-optimal-results-insights-from-yl-software/"><u>How Can You Benchmark Your PC's Hardware for Optimal Results? Insights From YL Software</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-backupbuddy-reviewers-thoughts/"><u>In 2024, BackupBuddy Reviewers Thoughts</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-honor-magic5-ultimate-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Honor Magic5 Ultimate to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-meizu-21-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Meizu 21 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/panoramico-di-aomei-backupper-unesplorazione-completa/"><u>Panoramico Di AOMEI Backupper: Un'Esplorazione Completa</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-tutorial-how-to-retrieve-accidentally-deleted-videos-from-a-dash-camera/"><u>Step-by-Step Tutorial: How to Retrieve Accidentally Deleted Videos From a Dash Camera</u></a></li>
 </ul></div>
 

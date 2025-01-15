@@ -1,7 +1,7 @@
 ---
 title: Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!
-date: 2025-01-04T22:33:27.784Z
-updated: 2025-01-09T09:30:55.632Z
+date: 2025-01-12T22:40:55.173Z
+updated: 2025-01-14T22:20:55.532Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8a38e69f6bb6d23740b2b061d8fc927f2b1d57e63
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.2 of LYRX karaoke software is ready for download!
@@ -31,7 +31,7 @@ You can test software all you want internally, and iron out issues with your bet
 ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrx.png?fit=300%2C210&ssl=1 "LYRX 1.6.0.2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Not only does the free 1.6.0.2 LYRX update address the reported problems, we were able to apply extensive under-the-hood optimizations and performance improvements. The updates should be noticeable, to the extent your MAC or PC will run cooler than with prior versions.
@@ -45,7 +45,7 @@ Again, we appreciate all the tremendous and extensive feedback we’ve received 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.2
@@ -63,7 +63,7 @@ If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download fro
 _Have questions about the latest 1.6.0.2 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,17 +85,22 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover-1.jpg?fit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-through-youtubes-content-id-system-issues/"><u>[New] In 2024, Navigating Through YouTube's Content ID System Issues</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-the-essential-handheld-guide-to-youtube-production/"><u>[New] In 2024, The Essential Handheld Guide to YouTube Production</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-pinnaclepix-z7-pro-elevate-your-photos-dimensions-for-2024/"><u>[Updated] PinnaclePix Z7 Pro Elevate Your Photo's Dimensions for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/3-effektive-methoden-zum-erstellen-eines-systemwiederherstellungsdatentragers-unter-windows-11-81-8-und-7-schritt-fur-schritt-anleitung/"><u>3 Effektive Methoden Zum Erstellen Eines Systemwiederherstellungsdatenträgers Unter Windows 11, 8.1, 8 Und 7 – Schritt-Für-Schritt-Anleitung</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/bestaanbouw-van-veiligheid-meest-effectieve-mogelijkheden-en-verder-buigen-groot-inleidingshandboek/"><u>Bestaanbouw Van Veiligheid: Meest Effectieve Mogelijkheden en Verder Buigen - Groot Inleidingshandboek</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/el-mejor-respaldo-de-particion-para-windows-compatible-con-las-versiones-11-10-8-y-7/"><u>El Mejor Respaldo De Partición Para Windows: Compatible Con Las Versiones 11, 10, 8 Y 7</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-13-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 13? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-vivo-s17-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Vivo S17 Data? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-economical-monoprice-artists-drawing-pad/"><u>In-Depth Analysis of the Economical Monoprice Artist's Drawing Pad</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/master-the-art-of-selfies-with-our-top-6-tips-for-selecting-a-quality-selfie-stick/"><u>Master the Art of Selfies with Our Top 6 Tips for Selecting a Quality Selfie Stick</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/stop-auto-updating-your-pc-in-windows-with-easy-tips-and-tricks/"><u>Stop Auto-Updating Your PC in Windows with Easy Tips and Tricks</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-1110872hdd/"><u>Windows 11/10/8/7での2台の外部HDD同期手順</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-combat-black-screen-disruptions-in-gaming-feeds/"><u>[New] 2024 Approved Combat Black Screen Disruptions in Gaming Feeds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-brain-mechanisms-guiding-high-stakes-business-conclusions/"><u>[Updated] Brain Mechanisms Guiding High-Stakes Business Conclusions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-insiders-edge-to-editing-your-look-back-story/"><u>2024 Approved The Insider's Edge to Editing Your Look Back Story</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/a-comprehensive-guide-on-how-to-use-the-f11-function-to-reboot-with-aomei-onekey-system-restore/"><u>A Comprehensive Guide on How To Use The F11 Function to Reboot With AOMEI OneKey System Restore</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/amazons-october-prime-day-special-get-the-sleek-apple-m2-macbook-air-for-just-749-insider-details/"><u>Amazon's October Prime Day Special: Get the Sleek Apple M2 MacBook Air for Just $749 - Insider Details</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/cara-restorasi-data-gagal-window-pc-dengan-losung-photorec/"><u>Cara Restorasi Data Gagal Window PC Dengan Lösung PhotoRec</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/erstellen-sie-ein-zuverlassiges-backup-ihrer-windows-os-version-vor-dem-update-auf-windows-nachsten-schritte-fur-die-aktualisierung/"><u>Erstellen Sie Ein Zuverlässiges Backup Ihrer Windows OS-Version Vor Dem Update Auf Windows Nächsten Schritte Für Die Aktualisierung</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guide-syncing-your-iphones-tunes-via-airdrop-a-step-by-step-method/"><u>Guide: Syncing Your iPhone's Tunes via AirDrop – A Step-by-Step Method</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728486035414-hddssd/"><u>HDD鏡像至SSD不丟失數據:兩種安全方法</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/masterclass-bei-videoproc-lerne-wie-man-videosaudiosdvds-effizient-bearbeitet-konvertiert-und-herunterladt/"><u>Masterclass Bei VideoProc: Lerne Wie Man Videos/Audios/DVDs Effizient Bearbeitet, Konvertiert Und Herunterlädt</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721104393004-mastering-the-fix-windows-compatible-wireless-keyboards-that-wont-respond-anymore/"><u>Mastering the Fix: Windows-Compatible Wireless Keyboards That Won't Respond Anymore</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/recuperation-sans-limites-utiliser-le-nouvel-outil-de-telechargement-des-fichiers-iso-gratuitement/"><u>Récupération Sans Limites : Utiliser Le Nouvel Outil De Téléchargement Des Fichiers ISO Gratuitement!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-the-windows-server-2016-startup-cycle-issues-post-update-top-5-methods/"><u>Resolving the Windows Server 2016 Startup Cycle Issues Post-Update: Top 5 Methods</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/step-by-step-guide-setting-up-your-lan-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Setting Up Your LAN on Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-reviews-and-insights-on-nacons-revolution-x-pro-game-pad-the-ultimate-gaming-accessory-in-2n12/"><u>Top Reviews & Insights on Nacon's Revolution X Pro Game Pad – The Ultimate Gaming Accessory in 2N12</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-the-ultimate-guide-to-time-lapse-video-editing-software-free-and-paid/"><u>Updated 2024 Approved The Ultimate Guide to Time-Lapse Video Editing Software (Free & Paid)</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windowshp0xc000021a/"><u>Windowsパフォーマンス障害：HPの場合、エラー0xC000021Aが表す問題</u></a></li>
 </ul></div>
 

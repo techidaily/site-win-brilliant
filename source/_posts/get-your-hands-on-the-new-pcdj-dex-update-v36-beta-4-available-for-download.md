@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2025-01-07T18:40:18.124Z
-updated: 2025-01-09T00:34:48.871Z
+date: 2025-01-09T21:13:46.025Z
+updated: 2025-01-15T00:38:50.710Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
@@ -59,7 +59,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,15 +81,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-quick-start-making-your-own-sports-highlight-film/"><u>[New] In 2024, Quick Start Making Your Own Sports Highlight Film</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-improving-remote-work-communications-with-4-strategies/"><u>[Updated] 2024 Approved Improving Remote Work Communications with #4 Strategies</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-windows-11-video-editing-tools-filmora-and-others/"><u>[Updated] In 2024, Top Windows 11 Video Editing Tools Filmora & Others</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/explore-digital-art-by-angie-yonaga-premium-wallpapers-and-backgrounds-for-enthusiasts-powered-by-yl-software/"><u>Explore Digital Art by Angie Yonaga: Premium Wallpapers and Backgrounds for Enthusiasts – Powered by YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-release-more-storage-on-your-computer-essential-tips-from-yl-computing/"><u>How to Release More Storage on Your Computer - Essential Tips From YL Computing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-game-changer-implementing-custom-gaming-banners/"><u>In 2024, The Game Changer Implementing Custom Gaming Banners</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/seamless-techniques-for-swift-removal-of-your-youtube-comments/"><u>Seamless Techniques for Swift Removal of Your Youtube Comments</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/secure-your-investments-expert-guide-on-safe-cryptocurrency-strategies-by-yl-computing/"><u>Secure Your Investments: Expert Guide on Safe Cryptocurrency Strategies by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-your-pcs-silent-issue-troubleshooting-a-non-responsive-sound-card-expert-advice-from-yl-computing/"><u>Solving Your PC's Silent Issue: Troubleshooting a Non-Responsive Sound Card - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlocking-youtube-potential-editing-after-the-upload-process/"><u>Unlocking YouTube Potential Editing After the Upload Process</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-5-free-pinterest-video-downloader-online/"><u>[New] In 2024, Top 5 Free Pinterest Video Downloader Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-your-way-to-frequent-payments-from-youtube/"><u>[Updated] 2024 Approved Charting Your Way to Frequent Payments From YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-free-versatile-laptop-software-to-watch-dvds/"><u>[Updated] Free, Versatile Laptop Software to Watch DVDs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-optimizing-video-playback-sizes-on-youtube/"><u>2024 Approved Optimizing Video Playback Sizes on YouTube</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/complete-data-deletion-solution-explore-the-power-of-bitrasers-enterprise-data-erasure-app/"><u>Complete Data Deletion Solution: Explore the Power of BitRaser's Enterprise Data Erasure App</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-solutions-for-common-windows-programming-errors-guidance-by-yl-software-experts/"><u>Easy Solutions for Common Windows Programming Errors - Guidance by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-family-safety-features-on-your-pc-a-step-by-step-guide-windows-yl-computing/"><u>Setting Up Family Safety Features on Your PC: A Step-by-Step Guide (Windows) - YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/signs-of-failure-in-your-gpu-tips-by-yl-software-experts/"><u>Signs of Failure in Your GPU: Tips by YL Software Experts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-hair-and-makeup-guide-on-youtubes-top-influencers-for-2024/"><u>The Ultimate Hair & Makeup Guide on YouTube's Top Influencers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/troubleshooting-airdrop-issues-iphoneipadmac-solutions/"><u>Troubleshooting Airdrop Issues IPhone/iPad/Mac Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
 </ul></div>
 

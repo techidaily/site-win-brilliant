@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements
-date: 2025-01-05T05:45:00.426Z
-updated: 2025-01-09T03:50:03.381Z
+date: 2025-01-14T06:53:45.131Z
+updated: 2025-01-14T16:18:06.588Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### All Changes Included In 3.5.5
@@ -50,7 +50,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 Existing DEX 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/) — Existing RED Mobile 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,19 +72,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/djsoftware355updates-cover
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-cutting-edge-editing-a-roadmap-for-high-quality-youtube-sounds-for-2024/"><u>[Updated] Cutting-Edge Editing A Roadmap for High-Quality YouTube Sounds for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-prime-7-video-software-for-mac/"><u>[Updated] In 2024, Prime 7 Video Software for Mac</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/can-the-upcoming-apple-watch-series-10-track-blood-pressure-accurately-find-out-here/"><u>Can the Upcoming Apple Watch Series 10 Track Blood Pressure Accurately? Find Out Here...</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-update-hp-printer-drivers-compatible-with-windows-11/"><u>Download & Update HP Printer Drivers: Compatible with Windows 11</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/essential-questions-every-couple-must-discuss-with-their-wedding-dj-top-10-tips/"><u>Essential Questions Every Couple Must Discuss with Their Wedding DJ - Top 10 Tips</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-x7-screen-savers-and-desktop-icons-premium-graphics-by-yl-computing/"><u>High-Definition BMW X7 Screen Savers & Desktop Icons - Premium Graphics by YL Computing</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-samsung-galaxy-s23-fe-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Samsung Galaxy S23 FE</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-apple-iphone-7-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Apple iPhone 7 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/modifying-display-options-a-guide-for-customizing-your-control-panel-yl-software-expertise/"><u>Modifying Display Options: A Guide for Customizing Your Control Panel - YL Software Expertise</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/pcdj-annual-roundup-reflecting-on-the-highlights-of-2014/"><u>PCDJ Annual Roundup - Reflecting on the Highlights of 2014</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/recognizing-signs-of-memory-corruption-problems-on-your-windows-system-insights-from-yl-computing/"><u>Recognizing Signs of Memory Corruption Problems on Your Windows System - Insights From YL Computing</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/respecting-privacy-safely-managing-contact-locations-on-your-iphone/"><u>Respecting Privacy: Safely Managing Contact Locations on Your iPhone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-htc-u23-pro-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your HTC U23 Pro Phone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-softwares-premium-acura-nsx-visual-gallery-stunning-2019-car-photos-for-desktop-backgrounds/"><u>YL Software's Premium Acura NSX Visual Gallery: Stunning 2019 Car Photos for Desktop Backgrounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-advanced-filmmaking-techniques-selecting-top-notch-lenses/"><u>[New] 2024 Approved Advanced Filmmaking Techniques Selecting Top-Notch Lenses</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-the-creme-de-la-creme-of-tiktok-gamers/"><u>[New] In 2024, The Crème De La Créme of TikTok Gamers</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unique-book-trail-showcases/"><u>[New] In 2024, Unique Book Trail Showcases</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/bestaanbouw-van-veiligheid-meest-effectieve-mogelijkheden-en-verder-buigen-groot-inleidingshandboek/"><u>Bestaanbouw Van Veiligheid: Meest Effectieve Mogelijkheden en Verder Buigen - Groot Inleidingshandboek</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-most-significant-tech-milestones-post-morse-code-era-since-1844/"><u>Discover the Most Significant Tech Milestones Post-Morse Code Era (Since 1844)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/discover-the-ultimate-list-of-free-mlb-streams-for-all-2022-matches-watch-baseball-online-at-no-cost/"><u>Discover the Ultimate List of Free MLB Streams for All 2022 Matches - Watch Baseball Online at No Cost!</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/history-enthusiasts-guide-to-inspiring-youtube-channels/"><u>History Enthusiasts' Guide to Inspiring YouTube Channels</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-efficiently-use-faqs-with-aomei-backupper-the-ultimate-guide/"><u>How to Efficiently Use FAQs with AOMEI Backupper: The Ultimate Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/movavis-free-audio-file-converter-for-aifc-to-m4a-streaming-and-download/"><u>Movavi's Free Audio File Converter for AIFC to M4A Streaming and Download</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-best-wmv-splitter-software-free-and-easy-to-use/"><u>New In 2024, Best WMV Splitter Software Free and Easy to Use</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-the-evolution-of-netflix-the-journey-from-dvd-rentals/"><u>Understanding the Evolution of Netflix: The Journey From DVD Rentals</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/verfahren-zur-wiederherstellung-von-fotodateien-ohne-sicherungsvorgang-erklart/"><u>Verfahren Zur Wiederherstellung Von Fotodateien Ohne Sicherungsvorgang Erklärt</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-partition-recovery-techniques-the-top-two-methods-you-should-know-about/"><u>Windows 11 Partition Recovery Techniques: The Top Two Methods You Should Know About</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-1110872hdd/"><u>Windows 11/10/8/7での2台の外部HDD同期手順</u></a></li>
 </ul></div>
 
