@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2025-01-09T21:13:46.025Z
-updated: 2025-01-15T00:38:50.710Z
+date: 2025-01-14T23:23:41.457Z
+updated: 2025-01-20T19:56:09.126Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
@@ -59,7 +59,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,18 +81,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-5-free-pinterest-video-downloader-online/"><u>[New] In 2024, Top 5 Free Pinterest Video Downloader Online</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-your-way-to-frequent-payments-from-youtube/"><u>[Updated] 2024 Approved Charting Your Way to Frequent Payments From YouTube</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-free-versatile-laptop-software-to-watch-dvds/"><u>[Updated] Free, Versatile Laptop Software to Watch DVDs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-optimizing-video-playback-sizes-on-youtube/"><u>2024 Approved Optimizing Video Playback Sizes on YouTube</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/complete-data-deletion-solution-explore-the-power-of-bitrasers-enterprise-data-erasure-app/"><u>Complete Data Deletion Solution: Explore the Power of BitRaser's Enterprise Data Erasure App</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-solutions-for-common-windows-programming-errors-guidance-by-yl-software-experts/"><u>Easy Solutions for Common Windows Programming Errors - Guidance by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/exquisite-no-game-no-life-wallpapers-and-imagery-collection-officially-licensed-graphics-from-ngnl-series/"><u>Exquisite 'No Game No Life' Wallpapers and Imagery Collection - Officially Licensed Graphics From NGNL Series</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/setting-up-family-safety-features-on-your-pc-a-step-by-step-guide-windows-yl-computing/"><u>Setting Up Family Safety Features on Your PC: A Step-by-Step Guide (Windows) - YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/signs-of-failure-in-your-gpu-tips-by-yl-software-experts/"><u>Signs of Failure in Your GPU: Tips by YL Software Experts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ltimate-hair-and-makeup-guide-on-youtubes-top-influencers-for-2024/"><u>The Ultimate Hair & Makeup Guide on YouTube's Top Influencers for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/troubleshooting-airdrop-issues-iphoneipadmac-solutions/"><u>Troubleshooting Airdrop Issues IPhone/iPad/Mac Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-your-malfunctioning-keyboard-discover-possible-causes-techtips-by-xyz/"><u>Troubleshooting Your Malfunctioning Keyboard: Discover Possible Causes - TechTips by XYZ</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728499409236-windows/"><u>「完全修復後のWindowsサーバーにおけるバックアップ機能不足」</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-luminary-lessons-teaching-the-power-of-proper-lighting/"><u>2024 Approved Luminary Lessons Teaching the Power of Proper Lighting</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-streamlining-video-production-with-clear-sound-effects/"><u>2024 Approved Streamlining Video Production with Clear Sound Effects</u></a></li>
+<li><a href="https://games-able.techidaily.com/high-performance-portable-computing-made-simple-pdw4/"><u>High-Performance Portable Computing Made Simple: PDW4</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/league-of-legends-performance-hiccups-heres-how-to-tackle-them-swiftly/"><u>League of Legends Performance Hiccups? Here's How to Tackle Them Swiftly</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-windows-11-hresult-0x87e00196-a-comprehensive-guide/"><u>Resolving Windows 11 HRESULT 0X87E00196: A Comprehensive Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/simple-solutions-for-uninterrupted-gaming-resolving-outriders-crash-issues/"><u>Simple Solutions for Uninterrupted Gaming: Resolving Outriders' Crash Issues</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-how-to-reset-your-computers-bios-by-clearing-the-cmos/"><u>Step-by-Step Guide: How to Reset Your Computer's BIOS by Clearing the CMOS</u></a></li>
+<li><a href="https://some-tips.techidaily.com/step-by-step-tutorial-transforming-mp4-audio-tracks-into-mp3-files-with-the-movavi-app-on-mac-computers/"><u>Step-by-Step Tutorial: Transforming MP4 Audio Tracks Into MP3 Files with the Movavi App on Mac Computers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unlock-creative-expression-master-device-based-filters-and-effects/"><u>Unlock Creative Expression Master Device-Based Filters and Effects</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/use-specialized-file-recovery-software-that-supports-the-mlv-format-or-other-multimedia-formats-if-its-not-available-for-mlv-specifically/"><u>Use Specialized File Recovery Software that Supports the MLV Format or Other Multimedia Formats if It's Not Available for MLV Specifically.</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/wie-man-emails-sicher-exportiert-masterclass-fur-den-transfer-von-mails-vom-postfach-auf-macos/"><u>Wie Man Emails Sicher Exportiert: Masterclass Für Den Transfer Von Mails Vom Postfach Auf macOS</u></a></li>
 </ul></div>
 

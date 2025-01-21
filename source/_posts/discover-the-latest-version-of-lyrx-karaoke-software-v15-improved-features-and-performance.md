@@ -1,7 +1,7 @@
 ---
 title: Discover the Latest Version of LYRX Karaoke Software (v1.5) - Improved Features and Performance!
-date: 2025-01-12T18:12:15.236Z
-updated: 2025-01-14T19:02:49.653Z
+date: 2025-01-13T20:36:18.251Z
+updated: 2025-01-21T07:47:11.258Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Fixed, and Updated in LYRX 1.5
@@ -48,7 +48,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 _Have questions about the latest 1.5 version of our LYRX **karaoke player**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -70,20 +70,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2019/07/lyrx15-cover.jpg?fit=706%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-should-you-keep-previewing-fb-activity-visible-insights-for-2024/"><u>[New] Should You Keep Previewing FB Activity Visible? Insights for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-14-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From Apple iPhone 14</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/get-your-hands-on-the-new-pcdj-dex-update-v36-beta-4-available-for-download/"><u>Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/global-warming-or-just-hot-summers-climate-clarity/"><u>Global Warming or Just Hot Summers? Climate Clarity</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-7-plus-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 7 Plus?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-sites-for-downloading-desired-youtube-ringtones/"><u>In 2024, Top Sites for Downloading Desired YouTube Ringtones</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/leading-tools-for-clear-uncompromised-4k-recordings-for-2024/"><u>Leading Tools for Clear, Uncompromised 4K Recordings for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mastering-device-efficiency-a-guide-by-yl-computing-on-configuring-power-options/"><u>Mastering Device Efficiency: A Guide by YL Computing on Configuring Power Options</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/new-dj-mixing-software-release-pcdj-dex-v31-available-for-instant-download/"><u>New DJ Mixing Software Release: PCDJ DeX v3.1, Available for Instant Download!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-adjusting-your-pcs-display-preferences-via-windows-yl-computing-solutions/"><u>Step-by-Step Guide: Adjusting Your PC's Display Preferences via Windows - YL Computing Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ultimate-guide-by-yl-software-resolving-issues-with-malfunctioning-ram-units/"><u>Ultimate Guide by YL Software: Resolving Issues with Malfunctioning RAM Units</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/uncover-the-10-best-makeup-experts-on-youtube-you-cant-ignore-for-2024/"><u>Uncover the 10 Best Makeup Experts on YouTube You Can't Ignore for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/wie-kann-ich-ungewiesene-festplattenpartitionen-wiederherstellen-myrecovery-guide/"><u>Wie Kann Ich Ungewiesene Festplattenpartitionen Wiederherstellen - MyRecovery Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-11-vs-windows-10-vs-windows-7-which-version-should-you-upgrade-to/"><u>Windows 11 Vs. Windows 10 Vs. Windows 7 - Which Version Should You Upgrade To?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/xiaomi-redmi-a2-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Xiaomi Redmi A2 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-5-quick-filming-diy-hacks-to-try-at-home/"><u>[New] Top 5 Quick Filming DIY Hacks to Try at Home</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-next-level-gaming-premium-vr-players-reviewed/"><u>[Updated] Next-Level Gaming Premium VR Players Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tasty-talent-a-filmmakers-recipe-for-success/"><u>[Updated] Tasty Talent A Filmmaker's Recipe for Success</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/excel/"><u>【自由教學】快速找回丟失的 Excel 文件方法</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/add-wonderful-old-school-feeling-distortion-and-glitch-effects-to-your-video-with-vhs-effect-read-this-article-to-learn-about-the-best-and-popular-methods-t/"><u>Add Wonderful Old-School Feeling, Distortion, and Glitch Effects to Your Video with VHS Effect. Read This Article to Learn About the Best and Popular Methods to Add VHS Effects to Your Videos in a Few Minutes</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/best-aomei-onekey-recovery-versions-full-side-by-side-analysis/"><u>Best AOMEI OneKey Recovery Versions - Full Side-by-Side Analysis</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/complete-step-by-step-tutorial-safeguarding-your-iphone-with-ios-1navigate-protecting-and-recovering-data-on-macpc/"><u>Complete Step-by-Step Tutorial: Safeguarding Your iPhone with iOS 1Navigate | Protecting and Recovering Data on Mac/PC</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/easy-steps-to-restore-removed-drive-on-windows-11-a-simple-guide/"><u>Easy Steps to Restore Removed Drive on Windows 11: A Simple Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guida-definitiva-allintegrazione-di-gmail-con-outlook-2016-un-tutorial-approfondito/"><u>Guida Definitiva All'integrazione Di Gmail Con Outlook 2016: Un Tutorial Approfondito</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/hikvision-ssdhdd/"><u>Hikvision SSDへ素早くHDDを移行する究極のガイド</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-nokia-130-music-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Nokia 130 Music Phones? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-safely-back-up-your-data-on-a-hard-drive-before-reformatting-with-windows-11-8-or-7/"><u>How to Safely Back Up Your Data on a Hard Drive Before Reformatting with Windows 11, 8 or 7</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-beginners-guide-to-inconspicuous-image-tinkering/"><u>In 2024, Beginner's Guide to Inconspicuous Image Tinkering</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-motorola-moto-g14-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Motorola Moto G14 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-incremental-file-copies-using-the-robocopy-utility/"><u>Mastering Incremental File Copies Using the Robocopy Utility</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-no-budget-no-problem-free-video-editing-software-for-starters-for-2024/"><u>New No Budget, No Problem Free Video Editing Software for Starters for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-guide-bypassing-edgenuity-courses-seamlessly/"><u>Quick Guide Bypassing Edgenuity Courses Seamlessly</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/steps-to-recover-removed-tweets-and-videos-on-twitter/"><u>Steps to Recover Removed Tweets and Videos on Twitter</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vrouwtje-snelle-toegang-van-window-11-file-explorer-herstellen/"><u>Vrouwtje Snelle Toegang Van Window 11 File Explorer Herstellen</u></a></li>
 </ul></div>
 

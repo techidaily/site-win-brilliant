@@ -1,7 +1,7 @@
 ---
 title: Inside Look at Revolutionary Features for Coming-Soon Pioneer DJ's Dexterity (DEX) 4 Software Update
-date: 2025-01-11T22:49:31.468Z
-updated: 2025-01-14T22:44:42.293Z
+date: 2025-01-16T19:48:53.063Z
+updated: 2025-01-21T03:56:23.726Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Additionally, the introduction of PADs with versatile modes like Loop Rolls, Sli
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DEX 4 Feature Highlights:
@@ -64,7 +64,7 @@ this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see
 * new controller: RANE Four
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other features:
@@ -91,7 +91,7 @@ this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see
 **_Stay tuned, we expect to drop DEX 4 very soon!_** 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -113,18 +113,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2024/08/DEX34-preview-cover.jpg?fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-customize-your-youtube-view-adjust-speed-settings/"><u>[New] Customize Your YouTube View Adjust Speed Settings</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-chart-your-course-navigating-the-waters-of-youtube-subscription-surges/"><u>[New] In 2024, Chart Your Course Navigating the Waters of YouTube Subscription Surges</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-maximizing-your-monetary-gains-from-mobile-youtube-channels-2024-guide/"><u>[New] Maximizing Your Monetary Gains From Mobile YouTube Channels - 2024 Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-pathway-to-visual-storytelling-through-gifs/"><u>[Updated] The Pathway to Visual Storytelling Through GIFs</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/csv3/"><u>「CSVデータ失われるのを防ぐ無料ツールトップ3」</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ipados-paint-the-creme-de-la-creation-apps/"><u>2024 Approved IPadOS Paint The Crème De La Création Apps</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/aktuelle-fehlerbehebungen-entfernung-von-youtube-inhalten-fur-die-jahre-2021-bis-2024/"><u>Aktuelle Fehlerbehebungen: Entfernung Von YouTube-Inhalten Für Die Jahre 2021 Bis 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-home-entertainment-amazing-amazon-basics-soundbar/"><u>Budget-Friendly Home Entertainment: Amazing Amazon Basics Soundbar</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Life360 Notify When You Log Out On Apple iPhone 12 mini? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-the-hyper-v-os-load-failure-solutions-for-missing-operating-system-issues/"><u>Understanding the 'Hyper-V OS Load Failure': Solutions for Missing Operating System Issues</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/vanuit-ongelukkig-gegaan-hoe-uw-reconstructieverzoek-naar-voorraad-is-aangeklapt/"><u>Vanuit Ongelukkig Gegaan... Hoe Uw Reconstructieverzoek Naar Voorraad Is Aangeklapt!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-110x8000ffff/"><u>Windows 11で発生した困難なエラー0x8000ffffを克服する方法</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-adapt-video-ratios-through-web-interface/"><u>[New] Adapt Video Ratios Through Web Interface</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-5-innovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>[Updated] 2024 Approved 5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-ultimate-guide-to-box-enthusiasm/"><u>[Updated] 2024 Approved The Ultimate Guide to Box Enthusiasm</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/accelerate-your-pc-performance-expert-tips-from-yl-computing-to-release-disk-space-efficiently/"><u>Accelerate Your PC Performance: Expert Tips From YL Computing to Release Disk Space Efficiently</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comprehensive-guide-to-adding-and-employing-chatgpt-enhancements/"><u>Comprehensive Guide to Adding and Employing ChatGPT Enhancements</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-insights-into-toms-tech-articles-and-reviews/"><u>Expert Insights Into Tom's Tech Articles & Reviews</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/free-download-numark-mixtrack-pro3-mapping-files-for-dex-iii-pioneer-cdjs/"><u>Free Download: Numark MixTrack PRO3 Mapping Files for DEX-III | Pioneer CDJs</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722970249419-how-gene-therapy-might-work/"><u>How Gene Therapy Might Work</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-it-possible-to-install-outdated-drives-in-windows-11-expert-advice-from-yl-computing/"><u>Is It Possible To Install Outdated Drives In Windows 11? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://techidaily.com/solving-gameplay-disruptions-tips-for-eliminating-second-display-latency-in-windows-10-and-11/"><u>Solving Gameplay Disruptions: Tips for Eliminating Second Display Latency in Windows 10 & 11</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-scanners-identifying-common-issues-and-solutions/"><u>Troubleshooting Scanners: Identifying Common Issues and Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tweak-your-computers-sound-settings-with-ease-tutorial-from-yl-software/"><u>Tweak Your Computer's Sound Settings with Ease - Tutorial From YL Software</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-apples-secret-what-the-upcoming-game-mode-could-mean-for-tech-enthusiasts-insider-info/"><u>Unveiling Apple's Secret: What the Upcoming 'Game Mode' Could Mean for Tech Enthusiasts - Insider Info</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1732519133533-yl-computing/"><u>YL Computing解析：《太平天国》起义的确切发生时间 - 最新软件洞察</u></a></li>
 </ul></div>
 

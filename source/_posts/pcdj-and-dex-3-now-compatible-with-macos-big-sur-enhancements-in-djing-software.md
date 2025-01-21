@@ -1,7 +1,7 @@
 ---
 title: "PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software"
-date: 2025-01-10T07:09:17.465Z
-updated: 2025-01-14T18:56:05.081Z
+date: 2025-01-14T10:24:13.401Z
+updated: 2025-01-21T03:49:37.101Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ Unlike macOS Catalina, which did require DEX 3 DJs to wait on upgrading for a fe
 If you haven’t already, [download and try the latest DEX 3.15 DJ software release](https://tools.techidaily.com/pcdj/products/) with macOS Big Sur, now with support for [Beatport LINK and Beatsource LINK](https://tools.techidaily.com/pcdj/products/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,18 +44,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/11/macOS-Big-Sur-800x450.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-free-extraction-of-youtube-desktops/"><u>[New] In 2024, Effortless Free Extraction of YouTube Desktops</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-game-up-your-content-with-these-effective-freefire-video-hashtags/"><u>[Updated] 2024 Approved Game Up Your Content with These Effective FreeFire Video Hashtags</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/10-sound-boosting-software-pc-mac-and-mobile-for-2024/"><u>Best 10 Sound Boosting Software PC, Mac & Mobile for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/come-superare-i-problemi-di-reproduzione-dei-file-mkv-su-pc-e-mac/"><u>Come Superare I Problemi Di Reproduzione Dei File MKV Su PC E Mac</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comprehensive-guide-for-copying-laptop-storage-onto-a-portable-external-drive/"><u>Comprehensive Guide for Copying Laptop Storage Onto a Portable External Drive</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/comprendere-i-differentianti-tra-il-backup-e-la-clonazione-dei-dispositivi-di-archiviazione-tipi-vantaggi-and-sviluppi/"><u>Comprendere I Differentianti Tra Il Backup E La Clonazione Dei Dispositivi Di Archiviazione: Tipi, Vantaggi & Sviluppi</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/free-mac-x-mkv-transcoder-hassle-free-high-definition-video-conversion-for-macos-users/"><u>Free Mac X MKV Transcoder: Hassle-Free High Definition Video Conversion for macOS Users</u></a></li>
-<li><a href="https://win-studio.techidaily.com/how-can-you-benchmark-your-pcs-hardware-for-optimal-results-insights-from-yl-software/"><u>How Can You Benchmark Your PC's Hardware for Optimal Results? Insights From YL Software</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-backupbuddy-reviewers-thoughts/"><u>In 2024, BackupBuddy Reviewers Thoughts</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-honor-magic5-ultimate-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Honor Magic5 Ultimate to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-meizu-21-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Meizu 21 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/panoramico-di-aomei-backupper-unesplorazione-completa/"><u>Panoramico Di AOMEI Backupper: Un'Esplorazione Completa</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-tutorial-how-to-retrieve-accidentally-deleted-videos-from-a-dash-camera/"><u>Step-by-Step Tutorial: How to Retrieve Accidentally Deleted Videos From a Dash Camera</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-core-virtual-reality-cinematic-gems/"><u>[Updated] Core Virtual Reality Cinematic Gems</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-spring-screenrecorder-simplified-your-ultimate-guide/"><u>[Updated] In 2024, Spring ScreenRecorder Simplified Your Ultimate Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-motorola-edgeplus-2023-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Motorola Edge+ (2023) Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726226427695-amv-movavi-amv/"><u>AMV를 원하는 사람들에게, Movavi의 공개 AMV 변환 기술</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/convierte-tus-videos-mp4-a-flac-por-la-noche-el-mejor-convertidor-en-linea-gratuito-que-ofrece-movavi/"><u>Convierte Tus Videos MP4 a FLAC Por La Noche: El Mejor Convertidor en Línea Gratuito Que Ofrece Movavi</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-how-the-affordable-anker-power-bank-revolutionized-portable-charging-expert-reviews-and-tips/"><u>Discover How the Affordable Anker Power Bank Revolutionized Portable Charging: Expert Reviews & Tips</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/free-online-ogg-to-mpg-converter-easy-use-by-movavi/"><u>Free Online Ogg to Mpg Converter - Easy Use by Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/gratis-online-omzetting-van-pcx-naar-bmp-professioneel-konvertor-movavi/"><u>Gratis Online Omzetting Van PCX Naar BMP - Professioneel Konvertor Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/gratis-online-tool-for-converting-flv-video-files-to-high-quality-mp3-audio-by-movavi/"><u>Gratis Online Tool for Converting FLV Video Files to High-Quality MP3 Audio by Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/gravacao-e-conversao-de-audio-mpeg-para-flac-free-online-com-o-movavi/"><u>Gravação E Conversão De Áudio: MPEG Para FLAC Free Online Com O Movavi</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/harmonizing-tracks-in-youtube-music-for-2024/"><u>Harmonizing Tracks in YouTube Music for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-cam-gear-mastering-low-speed-video-recording/"><u>In 2024, Ultimate Cam Gear Mastering Low-Speed Video Recording</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/on-viewer-milestone-and-associated-income-levels-for-2024/"><u>Million-Viewer Milestone and Associated Income Levels for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/photography-image-viewer-for-pc-and-mac-effortless-viewing-experience/"><u>Photography Image Viewer for PC & Mac - Effortless Viewing Experience</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/transformer-des-fichiers-mpeg-en-vob-directement-en-ligne-gratuitement-avec-movavi/"><u>Transformer Des Fichiers MPEG en VOB Directement en Ligne Gratuitement Avec Movavi</u></a></li>
+<li><a href="https://win-trending.techidaily.com/unlocking-efficient-deployment-with-windows-7s-wbadmin-cli-and-gui-comparison/"><u>Unlocking Efficient Deployment with Windows 7'S WBadmin CLI & GUI Comparison</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726226964341-vobflac-movavi/"><u>VOB到FLAC的无限制网络转换 - 使用Movavi视频转换器</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/windowed-world-of-video-editing-a-selective-recommendation-guide/"><u>Windowed World of Video Editing A Selective Recommendation Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bes-revenue-per-million-views-an-insight-for-2024/"><u>YouTube's Revenue Per Million Views An Insight for 2024</u></a></li>
 </ul></div>
 

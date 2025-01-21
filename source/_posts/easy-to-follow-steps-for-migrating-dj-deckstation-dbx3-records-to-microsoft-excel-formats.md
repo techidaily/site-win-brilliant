@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2025-01-12T16:02:24.314Z
-updated: 2025-01-15T01:16:34.328Z
+date: 2025-01-15T03:02:03.877Z
+updated: 2025-01-20T21:33:14.756Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,21 +46,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-brilliant.techidaily.com/guide-complet-restaurer-les-informations-dun-ordinateur-avec-windows-endommage/"><u>« Guide Complet: Restaurer Les Informations D'un Ordinateur Avec Windows Endommagé »</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-key-fixes-for-stabilizing-windows-10-photos-display/"><u>[New] Key Fixes for Stabilizing Windows 10 Photos Display</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-essential-handheld-guide-to-youtube-production/"><u>[Updated] 2024 Approved The Essential Handheld Guide to YouTube Production</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-ethical-engagement-sustainable-strategies-for-content-creeps/"><u>2024 Approved Ethical Engagement Sustainable Strategies for Content Creeps</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/outlook-201n-pst/"><u>簡單方法：Outlook 201N中迅速保存 PST 文件的全面指南</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/accelerate-your-vmware-virtual-machines-a-comprehensive-guide-with-7-effective-strategies/"><u>Accelerate Your VMware Virtual Machines: A Comprehensive Guide with 7 Effective Strategies</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/download-and-save-dailymotion-playlist-as-video-files-in-mp4-wmv-avi-or-mov-on-macoswindows-systems/"><u>Download and Save DailyMotion Playlist as Video Files in MP4, WMV, AVI or MOV on MacOS/Windows Systems</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/estrategias-para-hacer-copia-de-seguridad-y-clonacion-total-del-disco-duro-usando-aomei-backupper/"><u>Estrategias Para Hacer Copia De Seguridad Y Clonación Total Del Disco Duro Usando AOMEI Backupper</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fehlerbehebung-die-option-zum-aktualisieren-nicht-verfugbar-in-windows-10-gelost/"><u>Fehlerbehebung: Die Option Zum Aktualisieren Nicht Verfügbar in Windows 10 Gelöst</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-leave-a-life360-group-on-itel-s23plus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Itel S23+ Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-depth-steps-using-mobizen-for-smooth-screen-recording-for-2024/"><u>In-Depth Steps Using Mobizen for Smooth Screen Recording for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/reclaiming-your-data-effective-strategies-for-retrieving-deletedunsaved-wordpad-docs/"><u>Reclaiming Your Data: Effective Strategies for Retrieving Deleted/Unsaved WordPad Docs</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ssd-steam/"><u>SSDへスムーズに移行! Steam ゲームマニュアル: 最新４手順ガイド</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-8-collaborative-video-collage-apps-for-android-users-freepaid-for-2024/"><u>Top 8 Collaborative Video Collage Apps for Android Users (Free/Paid) for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-cricket-ultimate-guide-to-live-streaming-selection/"><u>Top Cricket Ultimate Guide to Live Streaming Selection</u></a></li>
-<li><a href="https://program-issues.techidaily.com/what-to-expect-from-rainbow-six-siege-no-new-features-revealed/"><u>What to Expect From Rainbow Six Siege : No New Features Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-clubbing-essentials-top-rated-dj-template-vids/"><u>[New] 2024 Approved Clubbing Essentials Top-Rated DJ Template Vids</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-guide-to-top-5-text-effects-downloading-sites/"><u>[New] In 2024, A Guide to Top 5 Text Effects Downloading Sites</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aster-your-hashtags-the-path-to-6-figure-youtube-success-for-2024/"><u>[New] Master Your Hashtags The Path to 6-Figure Youtube Success for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-streamline-media-management-with-top-10plus-free-instagram-to-mp4-converters-for-2024/"><u>[New] Streamline Media Management with Top 10+ Free Instagram-to-MP4 Converters for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-encompassing-understanding-the-essence-of-googles-podcasts-app/"><u>[Updated] Encompassing Understanding The Essence of Google's Podcasts App</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726028047594-pc3/"><u>美しい画像プレゼンテーションを構築するためのPC上での3つの効果的な方法</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/beating-the-blues-effective-strategies-to-resolve-windows-update-error-configuration/"><u>Beating the Blues: Effective Strategies to Resolve Windows Update Error Configuration</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/checking-if-your-graphics-card-works-with-your-pc-a-comprehensive-guide-yl-tech-solutions/"><u>Checking if Your Graphics Card Works With Your PC: A Comprehensive Guide - YL Tech Solutions</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/free-entry-to-the-ultimate-karaoke-summit-2e15-register-today-and-master-your-mixes/"><u>Free Entry to the Ultimate Karaoke Summit 2E15 - Register Today and Master Your Mixes!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-e46-m3-gtr-desktop-backgrounds-and-walls-premium-visual-content-by-yl-computing/"><u>High-Definition BMW E46 M3 GTR Desktop Backgrounds and Walls: Premium Visual Content by YL Computing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-key-methods-to-incorporate-facebook-live-into-website-designs/"><u>In 2024, Key Methods to Incorporate Facebook Live Into Website Designs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/master-the-art-of-social-media-stardom-with-these-9-strategies-for-2024/"><u>Master the Art of Social Media Stardom with These 9 Strategies for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726026902836-pc/"><u>PCにて自らの声を録音するステップバイステップマニュアル</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-program-failed-to-launch-issues-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Resolving 'Program Failed to Launch' Issues on Windows: A Comprehensive Guide - By YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-automatic-computer-backups-via-windows-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Setting Up Automatic Computer Backups via Windows Control Panel - A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-windows-control-panel-a-guide-to-network-and-internet-settings-yl-software-solutions/"><u>Understanding Windows Control Panel: A Guide to Network & Internet Settings - YL Software Solutions</u></a></li>
 </ul></div>
 

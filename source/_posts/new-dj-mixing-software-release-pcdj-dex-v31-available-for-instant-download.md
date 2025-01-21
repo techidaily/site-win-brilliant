@@ -1,7 +1,7 @@
 ---
 title: "New DJ Mixing Software Release: PCDJ DeX v3.1, Available for Instant Download!"
-date: 2025-01-11T07:34:53.614Z
-updated: 2025-01-14T19:54:39.892Z
+date: 2025-01-13T18:43:33.024Z
+updated: 2025-01-21T00:53:53.218Z
 tags:
   - product
 categories:
@@ -62,7 +62,7 @@ DirectX/ASIO compatible multichannel soundcard (Mac: multichannel Core Audio sou
 ##### VIDEO DEMONSTRATION OF THE NEW “LIST MODE” INCLUDED IN THE DEX 3.1 UPDATE
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -84,15 +84,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/11/dex31update-blogcoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-break-the-ice-with-these-beginner-video-gadgets/"><u>[New] 2024 Approved Break the Ice with These Beginner Video Gadgets</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-create-a-standout-presence-with-youtube-custom-imagery/"><u>[New] 2024 Approved Create a Standout Presence with YouTube Custom Imagery</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-vdsm-video-recorder-prospectus-detailed-study/"><u>[New] VDSM Video Recorder Prospectus Detailed Study</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-comparing-obs-and-fraps-aimed-at-filmmakers/"><u>[Updated] 2024 Approved Comparing OBS and Fraps Aimed at Filmmakers</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eliminating-windows-11-update-hiccup-error-0xc1900101/"><u>Eliminating Windows 11 Update Hiccup: Error 0xC1900101</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/jin-yuuichis-stunning-backdrops-and-digital-art-premium-wallpaper-collection-by-yl-computing/"><u>Jin Yuuichis Stunning Backdrops & Digital Art: Premium Wallpaper Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/navigating-graphics-glitches-a-comprehensive-guide-to-fix-display-problems-yl-software-experts/"><u>Navigating Graphics Glitches: A Comprehensive Guide to Fix Display Problems - YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-unresponsive-scanner-issues-a-step-by-step-guide-from-yl-computing/"><u>Solving Unresponsive Scanner Issues: A Step-by-Step Guide From YL Computing</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-ps5-debate-pros-and-cons-explored/"><u>The PS5 Debate - Pros and Cons Explored</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/unveiling-dex-31002-update-explore-new-features-with-pcdj-dj-software/"><u>Unveiling DEX 3.10.0.2 Update: Explore New Features with PCDJ DJ Software!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-enhancing-content-strategy-with-igtv-performance-metrics/"><u>[New] Enhancing Content Strategy with IGTV Performance Metrics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-professional-3d-creation-software-for-video-startups/"><u>[New] In 2024, Professional 3D Creation Software for Video Startups</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/3-moglichkeiten-windows-11-im-abgesicherten-modus-zu-starten-schritt-fur-schritt-anleitung/"><u>3 Möglichkeiten, Windows 11 Im Abgesicherten Modus Zu Starten: Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/comment-recuperer-les-fichiers-supprimes-dans-windows-xp-guide-detaille/"><u>Comment Récupérer Les Fichiers Supprimés Dans Windows XP - Guide Détaillé</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-ways-to-keep-your-asus-maximus-x-hero-video-card-drivers-up-to-date/"><u>Easy Ways to Keep Your ASUS Maximus X Hero Video Card Drivers Up-to-Date</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guia-paso-a-paso-como-hacer-una-copia-de-seguridad-y-restaurar-la-particion-o-volumen-del-disco/"><u>Guía Paso a Paso: Cómo Hacer Una Copia De Seguridad Y Restaurar La Partición O Volumen Del Disco</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/lenovo-tapscreen-troubleshoot-successful/"><u>Lenovo TapScreen Troubleshoot Successful</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/procedimientos-simplificados-para-desasignar-areas-en-tarjetas-flash-externa-estrategias-eficientes-para-eliminar-particiones-usb/"><u>Procedimientos Simplificados Para Desasignar Áreas en Tarjetas Flash Externa: Estrategias Eficientes Para Eliminar Particiones USB</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/schnell-retten-sie-ihre-indesign-daten-professionelle-tipps-zum-wiedereinrichten/"><u>Schnell Retten Sie Ihre InDesign-Daten - Professionelle Tipps Zum Wiedereinrichten</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/simple-steps-syncing-audio-tracks-with-your-ipod-nano-no-itunes-required/"><u>Simple Steps: Syncing Audio Tracks with Your iPod Nano - No iTunes Required</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-how-to-fix-a-non-functional-bluetooth-mouse-on-windows-pc/"><u>Troubleshooting Guide: How to Fix a Non-Functional Bluetooth Mouse on Windows PC</u></a></li>
 </ul></div>
 

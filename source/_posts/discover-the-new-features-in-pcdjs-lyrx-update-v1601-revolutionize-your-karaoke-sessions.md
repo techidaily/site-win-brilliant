@@ -1,7 +1,7 @@
 ---
 title: Discover the New Features in PCDJ's LYRX Update v1.6.0.1 – Revolutionize Your Karaoke Sessions!
-date: 2025-01-12T22:40:55.173Z
-updated: 2025-01-14T22:20:55.532Z
+date: 2025-01-17T01:10:19.142Z
+updated: 2025-01-21T01:12:35.128Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8a38e69f6bb6d23740b2b061d8fc927f2b1d57e63
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Version 1.6.0.2 of LYRX karaoke software is ready for download!
@@ -31,7 +31,7 @@ You can test software all you want internally, and iron out issues with your bet
 ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrx.png?fit=300%2C210&ssl=1 "LYRX 1.6.0.2")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Not only does the free 1.6.0.2 LYRX update address the reported problems, we were able to apply extensive under-the-hood optimizations and performance improvements. The updates should be noticeable, to the extent your MAC or PC will run cooler than with prior versions.
@@ -45,7 +45,7 @@ Again, we appreciate all the tremendous and extensive feedback we’ve received 
 If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download from the link below and run as a free trial.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Changed, and Fixed in LYRX v1.6.0.2
@@ -63,7 +63,7 @@ If you’re new to [LYRX](http://www.lyrxkaraoke.com), you can also download fro
 _Have questions about the latest 1.6.0.2 version of our LYRX **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,22 +85,22 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2020/05/lyrxforwin-cover-1.jpg?fit
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-combat-black-screen-disruptions-in-gaming-feeds/"><u>[New] 2024 Approved Combat Black Screen Disruptions in Gaming Feeds</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-brain-mechanisms-guiding-high-stakes-business-conclusions/"><u>[Updated] Brain Mechanisms Guiding High-Stakes Business Conclusions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-insiders-edge-to-editing-your-look-back-story/"><u>2024 Approved The Insider's Edge to Editing Your Look Back Story</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/a-comprehensive-guide-on-how-to-use-the-f11-function-to-reboot-with-aomei-onekey-system-restore/"><u>A Comprehensive Guide on How To Use The F11 Function to Reboot With AOMEI OneKey System Restore</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/amazons-october-prime-day-special-get-the-sleek-apple-m2-macbook-air-for-just-749-insider-details/"><u>Amazon's October Prime Day Special: Get the Sleek Apple M2 MacBook Air for Just $749 - Insider Details</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/cara-restorasi-data-gagal-window-pc-dengan-losung-photorec/"><u>Cara Restorasi Data Gagal Window PC Dengan Lösung PhotoRec</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/erstellen-sie-ein-zuverlassiges-backup-ihrer-windows-os-version-vor-dem-update-auf-windows-nachsten-schritte-fur-die-aktualisierung/"><u>Erstellen Sie Ein Zuverlässiges Backup Ihrer Windows OS-Version Vor Dem Update Auf Windows Nächsten Schritte Für Die Aktualisierung</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/guide-syncing-your-iphones-tunes-via-airdrop-a-step-by-step-method/"><u>Guide: Syncing Your iPhone's Tunes via AirDrop – A Step-by-Step Method</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728486035414-hddssd/"><u>HDD鏡像至SSD不丟失數據:兩種安全方法</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/masterclass-bei-videoproc-lerne-wie-man-videosaudiosdvds-effizient-bearbeitet-konvertiert-und-herunterladt/"><u>Masterclass Bei VideoProc: Lerne Wie Man Videos/Audios/DVDs Effizient Bearbeitet, Konvertiert Und Herunterlädt</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721104393004-mastering-the-fix-windows-compatible-wireless-keyboards-that-wont-respond-anymore/"><u>Mastering the Fix: Windows-Compatible Wireless Keyboards That Won't Respond Anymore</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/recuperation-sans-limites-utiliser-le-nouvel-outil-de-telechargement-des-fichiers-iso-gratuitement/"><u>Récupération Sans Limites : Utiliser Le Nouvel Outil De Téléchargement Des Fichiers ISO Gratuitement!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-the-windows-server-2016-startup-cycle-issues-post-update-top-5-methods/"><u>Resolving the Windows Server 2016 Startup Cycle Issues Post-Update: Top 5 Methods</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/step-by-step-guide-setting-up-your-lan-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Setting Up Your LAN on Windows - Tips From YL Computing</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-reviews-and-insights-on-nacons-revolution-x-pro-game-pad-the-ultimate-gaming-accessory-in-2n12/"><u>Top Reviews & Insights on Nacon's Revolution X Pro Game Pad – The Ultimate Gaming Accessory in 2N12</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-the-ultimate-guide-to-time-lapse-video-editing-software-free-and-paid/"><u>Updated 2024 Approved The Ultimate Guide to Time-Lapse Video Editing Software (Free & Paid)</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windowshp0xc000021a/"><u>Windowsパフォーマンス障害：HPの場合、エラー0xC000021Aが表す問題</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-in-depth-look-at-nikons-4k-powerhouse-j5-for-2024/"><u>[New] The In-Depth Look at Nikon's 4K Powerhouse - J5 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-add-filters-to-video-pc-and-mobile/"><u>[Updated] 2024 Approved Add Filters to Video [PC & Mobile]</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-motorola-moto-g84-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-craft-your-best-youtubing-exit-tips-from-industry-leaders/"><u>2024 Approved Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-premium-ferrari-california-hd-wallpaper-images-yl-computings-exclusive-design-series/"><u>Download Premium Ferrari California HD Wallpaper Images - YL Computing's Exclusive Design Series</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-cutting-edge-visual-tech-the-premier-choices-for-smart-eyewear/"><u>Exploring Cutting-Edge Visual Tech: The Premier Choices for Smart Eyewear</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-the-power-of-online-interactions-on-facebook-twitter-instagram-and-youtube/"><u>Exploring the Power of Online Interactions on Facebook, Twitter, Instagram & Youtube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-how-to-optimize-your-steam-experience-with-a-switch-pro-controller/"><u>In 2024, How to Optimize Your Steam Experience with a Switch Pro Controller</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/inside-look-at-revolutionary-features-for-coming-soon-pioneer-djs-dexterity-dex-4-software-update/"><u>Inside Look at Revolutionary Features for Coming-Soon Pioneer DJ's Dexterity (DEX) 4 Software Update</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-hardware-and-software-problems-a-comprehensive-guide-by-yl-computing/"><u>Solving Hardware & Software Problems: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-the-mystery-of-strange-file-extensions-a-guide-by-yl-computing/"><u>Solving the Mystery of Strange File Extensions: A Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-guide-navigating-and-opening-file-folders-on-windows-tips-from-yl-computing/"><u>Step-by-Step Guide: Navigating and Opening File Folders on Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/taiwan-icon-liu-jiachang-exposes-kmt-flaws-ahead-of-2024-vote-advocates-for-leadership-by-han-guo-yu-insights-from-yl-computing-and-software-solutions/"><u>Taiwan Icon Liu Jiachang Exposes KMT Flaws Ahead of 2024 Vote; Advocates for Leadership by Han Guo-Yu – Insights From YL Computing & Software Solutions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/textual-transformation-enrich-your-images-with-words-pcmac-style/"><u>Textual Transformation Enrich Your Images with Words, PC/Mac Style</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-wireless-connection-issues-on-my-laptop-a-step-by-step-guide-by-yl-computing/"><u>Troubleshooting Wireless Connection Issues on My Laptop: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-why-wont-your-printer-connect-to-your-pc-expert-tips-from-yl-computing/"><u>Troubleshooting: Why Won't Your Printer Connect to Your PC? - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlock-channels-success-key-equipment-insights/"><u>Unlock Channels Success Key Equipment Insights</u></a></li>
 </ul></div>
 

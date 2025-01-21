@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2025-01-10T07:19:54.157Z
-updated: 2025-01-15T06:48:08.146Z
+date: 2025-01-17T01:36:04.262Z
+updated: 2025-01-20T22:59:03.602Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,21 +60,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gastronomy-goals-attractive-food-network-branding-ideas/"><u>[New] 2024 Approved Gastronomy Goals Attractive Food Network Branding Ideas</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-comprehensive-guide-to-creating-movies-not-just-youtube/"><u>[New] The Comprehensive Guide to Creating Movies, Not Just YouTube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovating-visual-storytelling-through-photo-mosaics/"><u>2024 Approved Innovating Visual Storytelling Through Photo Mosaics</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-animators-companion-expertly-reviewed-3d-modeling-software/"><u>2024 Approved The Animator's Companion Expertly Reviewed 3D Modeling Software</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/dragon-ball-marathon-mastery-how-to-binge-the-series-correctly/"><u>Dragon Ball Marathon Mastery: How to Binge the Series Correctly</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expert-tips-for-securely-archiving-your-iphoto-collection/"><u>Expert Tips for Securely Archiving Your iPhoto Collection</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-exploring-new-design-dimensions-integrating-typesetting-into-ae/"><u>In 2024, Exploring New Design Dimensions Integrating Typesetting Into AE</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-text-formatting-how-to-insert-lines-seamlessly-in-word/"><u>Mastering Text Formatting: How to Insert Lines Seamlessly in Word</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/passwordegesteuerte-schutzmassnahmen-fur-ihre-ordnere-auf-dropbox/"><u>Passwordegesteuerte Schutzmaßnahmen Für Ihre Ordnere Auf Dropbox</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/prosedur-deteksi-dan-restorasi-partisi-ext3-dalam-operating-system-windows-11-10/"><u>Prosedur Deteksi Dan Restorasi Partisi Ext3 Dalam Operating System Windows 11 / 10</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/seamless-transfer-of-iphone-images-directly-to-exfat-storage-device-by-bypassing-the-desktop-system/"><u>Seamless Transfer of iPhone Images Directly to ExFAT Storage Device by Bypassing the Desktop System</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-guide-how-to-restore-missing-quick-access-icons-on-your-desktop-6-steps/"><u>Troubleshooting Guide: How To Restore Missing Quick Access Icons On Your Desktop (6 Steps)</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-tips-successfully-setting-up-battleye-service/"><u>Troubleshooting Tips: Successfully Setting Up BattlEye Service</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/tutorial-mise-a-jour-du-disque-premium-bootable-vers-un-ssd-pour-une-demarrage-accelere-sous-windows-10/"><u>Tutorial : Mise À Jour Du Disque Premium Bootable Vers Un SSD Pour Une Démarrage Accéléré Sous Windows 10</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unveiling-the-art-of-chromatic-mastery-in-video-editing-11-steps/"><u>Unveiling the Art of Chromatic Mastery in Video Editing (11 Steps)</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728465300466-onedrive/"><u>スムーズな移行: ネットワークフォルダとOneDriveを同期する手順</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-configure-storage-of-captured-mac-screen/"><u>[New] In 2024, Configure Storage of Captured Mac Screen</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-evolution-continues-iphone-xs-photographic-advancements/"><u>[New] In 2024, The Evolution Continues IPhone X's Photographic Advancements</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-navigating-your-digital-past-with-fbs-preview-feature/"><u>[New] Navigating Your Digital Past with FB's Preview Feature</u></a></li>
+<li><a href="https://blog-min.techidaily.com/creating-a-continuous-dvd-cycle-a-step-by-step-guide-on-looping-dvds/"><u>Creating a Continuous DVD Cycle: A Step-by-Step Guide on Looping DVDs</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/curious-about-why-your-iphone-continuously-snaps-copies-of-images-discover-effective-ways-to-halt-duplication/"><u>Curious About Why Your iPhone Continuously Snaps Copies of Images? Discover Effective Ways to Halt Duplication!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722892228339-discover-these-6-exceptional-no-cost-photo-manipulation-tools/"><u>Discover These 6 Exceptional No-Cost Photo Manipulation Tools</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/efficiently-mass-deploy-windows-7-across-several-pcs-using-a-single-imaged-setup/"><u>Efficiently Mass-Deploy Windows 7 Across Several PCs Using a Single Imaged Setup</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-techniques-for-efficient-zoom-meeting-recordings/"><u>In 2024, Techniques for Efficient Zoom Meeting Recordings</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/step-by-step-tutorial-on-rescuing-your-cr2-images-from-compromised-sd-media/"><u>Step-by-Step Tutorial on Rescuing Your CR2 Images From Compromised SD Media</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/transforming-multimedia-content-effortless-cross-platform-video-conversion-with-winx-mobile-video-converter/"><u>Transforming Multimedia Content: Effortless Cross-Platform Video Conversion with WinX Mobile Video Converter</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/wet-weather-warriors-7-powerful-camera-choices/"><u>Wet Weather Warriors #7 Powerful Camera Choices</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-0/"><u>Windows 11 バックアップサイズが0バイトの問題を解消した！</u></a></li>
 </ul></div>
 

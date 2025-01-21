@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements
-date: 2025-01-14T06:53:45.131Z
-updated: 2025-01-14T16:18:06.588Z
+date: 2025-01-17T06:30:01.490Z
+updated: 2025-01-21T09:25:37.210Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### All Changes Included In 3.5.5
@@ -50,7 +50,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 Existing DEX 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/) — Existing RED Mobile 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,19 +72,21 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/djsoftware355updates-cover
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-advanced-filmmaking-techniques-selecting-top-notch-lenses/"><u>[New] 2024 Approved Advanced Filmmaking Techniques Selecting Top-Notch Lenses</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-the-creme-de-la-creme-of-tiktok-gamers/"><u>[New] In 2024, The Crème De La Créme of TikTok Gamers</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-unique-book-trail-showcases/"><u>[New] In 2024, Unique Book Trail Showcases</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/bestaanbouw-van-veiligheid-meest-effectieve-mogelijkheden-en-verder-buigen-groot-inleidingshandboek/"><u>Bestaanbouw Van Veiligheid: Meest Effectieve Mogelijkheden en Verder Buigen - Groot Inleidingshandboek</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-most-significant-tech-milestones-post-morse-code-era-since-1844/"><u>Discover the Most Significant Tech Milestones Post-Morse Code Era (Since 1844)</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/discover-the-ultimate-list-of-free-mlb-streams-for-all-2022-matches-watch-baseball-online-at-no-cost/"><u>Discover the Ultimate List of Free MLB Streams for All 2022 Matches - Watch Baseball Online at No Cost!</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/history-enthusiasts-guide-to-inspiring-youtube-channels/"><u>History Enthusiasts' Guide to Inspiring YouTube Channels</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-efficiently-use-faqs-with-aomei-backupper-the-ultimate-guide/"><u>How to Efficiently Use FAQs with AOMEI Backupper: The Ultimate Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/movavis-free-audio-file-converter-for-aifc-to-m4a-streaming-and-download/"><u>Movavi's Free Audio File Converter for AIFC to M4A Streaming and Download</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-best-wmv-splitter-software-free-and-easy-to-use/"><u>New In 2024, Best WMV Splitter Software Free and Easy to Use</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-the-evolution-of-netflix-the-journey-from-dvd-rentals/"><u>Understanding the Evolution of Netflix: The Journey From DVD Rentals</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/verfahren-zur-wiederherstellung-von-fotodateien-ohne-sicherungsvorgang-erklart/"><u>Verfahren Zur Wiederherstellung Von Fotodateien Ohne Sicherungsvorgang Erklärt</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-11-partition-recovery-techniques-the-top-two-methods-you-should-know-about/"><u>Windows 11 Partition Recovery Techniques: The Top Two Methods You Should Know About</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-1110872hdd/"><u>Windows 11/10/8/7での2台の外部HDD同期手順</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-building-impressive-instagram-story-bookmarks/"><u>[Updated] Building Impressive Instagram Story Bookmarks</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-use-windows-defender-on-a-mac-machine-insights-from-yl-computing/"><u>Can You Use Windows Defender on a Mac Machine? - Insights From YL Computing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-memorable-announcements-the-key-to-successful-facebook-giving-posts/"><u>Crafting Memorable Announcements The Key to Successful Facebook Giving Posts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-fix-an-unresponsive-printer-quickly-and-effectively-yl-software-expertise-inside/"><u>How to Fix an Unresponsive Printer Quickly & Effectively, YL Software Expertise Inside!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-set-a-new-standard-printer-in-windows-tips-from-yl-software-experts/"><u>How To Set a New Standard Printer In Windows: Tips From YL Software Experts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-branding-beyond-words-eye-catching-podcast-graphics/"><u>In 2024, Branding Beyond Words Eye-Catching Podcast Graphics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ative-templates-for-stellar-youtube-video-decks/"><u>Innovative Templates for Stellar YouTube Video Decks</u></a></li>
+<li><a href="https://win-able.techidaily.com/innovative-youtube-uploaders-unconventional-methods-to-overcome-video-upload-challenges/"><u>Innovative YouTube Uploaders: Unconventional Methods to Overcome Video Upload Challenges</u></a></li>
+<li><a href="https://article-files.techidaily.com/perfecting-your-green-screen-workflow-with-kinemaster-for-2024/"><u>Perfecting Your Green Screen Workflow with KineMaster for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/powergenius-dj-essentials-the-rotating-usb-outlet-and-cable-organizer-by-accellcables/"><u>PowerGenius DJ Essentials: The Rotating USB Outlet & Cable Organizer by AccellCables</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-missing-ocidll-files-on-your-pc/"><u>Resolving Missing oci.dll Files on Your PC</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/revealing-secrets-in-compressed-formats-how-to-access-zip-archive-content-with-yl-tech-advice/"><u>Revealing Secrets in Compressed Formats: How to Access Zip Archive Content with YL Tech Advice</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/say-goodbye-to-paywalls-with-free-video-handling-tools-for-2024/"><u>Say Goodbye to Paywalls with Free Video Handling Tools for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-veiled-side-of-instagram-stories-what-youre-not-seeing-for-2024/"><u>The Veiled Side of Instagram Stories What You're Not Seeing for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-methods-for-identifying-cpu-mistakes-expert-tips-from-yl-computing/"><u>Top Methods for Identifying CPU Mistakes: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/understanding-the-rise-to-power-a-look-at-how-the-sui-empire-gained-dominance-over-china-yl-software/"><u>Understanding the Rise to Power: A Look at How the Sui Empire Gained Dominance Over China – YL Software</u></a></li>
 </ul></div>
 
