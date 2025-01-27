@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX 3.6.1 Public Beta Version Now - PCDJ
-date: 2025-01-14T07:31:39.365Z
-updated: 2025-01-20T16:37:30.235Z
+date: 2025-01-24T20:27:35.969Z
+updated: 2025-01-26T20:28:19.147Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ _**NOTE:** Since version 3.6.1 is a public beta and [DJ software](https://tools.
 _Have questions about DEX 3.6.1 DJ, **video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,18 +60,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-social-media-stardom-in-a-nutshell-master-these-9-tactics-for-insta-glory/"><u>[New] 2024 Approved Social Media Stardom in a Nutshell Master These 9 Tactics for Insta Glory</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-blackout-brilliance-minute-edition/"><u>[New] Blackout Brilliance Minute Edition</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-gamers-secrets-to-effective-playback-logging/"><u>[Updated] 2024 Approved Gamers' Secrets to Effective Playback Logging</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-maximizing-screen-time-selecting-an-mcn-wisely/"><u>[Updated] Maximizing Screen Time Selecting an MCN Wisely</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-handbook-to-producing-viral-facebook-reels-for-2024/"><u>[Updated] The Ultimate Handbook to Producing Viral Facebook Reels for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-optimizing-your-workflow-efficiently-editing-360-degree-videos-in-premiere-pro/"><u>2024 Approved Optimizing Your Workflow Efficiently Editing 360 Degree Videos in Premiere Pro</u></a></li>
-<li><a href="https://some-tips.techidaily.com/amazons-aws-launches-innovative-trainium-ai-processor-and-graviton-4-enhanced-collaboration-with-nvidia-announced/"><u>Amazon's AWS Launches Innovative Trainium AI Processor & Graviton-4: Enhanced Collaboration with Nvidia Announced</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diagnose-and-repair-a-faulty-razer-microphone-in-just-5-steps/"><u>Diagnose and Repair a Faulty Razer Microphone in Just 5 Steps</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/error-404-the-pages-youre-looking-for-cannot-be-displayed/"><u>Error 404: The Pages You're Looking For Cannot Be Displayed</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-many-vms-can-be-active-together-without-issues/"><u>How Many VMs Can Be Active Together Without Issues?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-correct-the-resource-missing-error-on-your-site-and-prevent-future-occurrences/"><u>How to Correct the Resource Missing Error on Your Site & Prevent Future Occurrences</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/iphonepcwhatsapp/"><u>IPhoneからPCへのWhatsAppデータ移行ガイド：初学者用</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/schnelle-losung-fur-raw-anzeige-auf-externer-wd-festplatte-wiederherstellungsmethode-erfolgreich/"><u>Schnelle Lösung Für 'RAW'-Anzeige Auf Externer WD Festplatte: Wiederherstellungsmethode Erfolgreich</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-how-to-forge-memes-that-captivate-audiences/"><u>[Updated] How to Forge Memes that Captivate Audiences</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-access-unlimited-stock-photos-via-four-noteworthy-youtubes/"><u>[Updated] In 2024, Access Unlimited Stock Photos via Four Noteworthy YouTubes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-zoomelitevue-7-enhance-and-resize-like-a-pro/"><u>[Updated] In 2024, ZoomEliteVue 7 Enhance & Resize Like a Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-components-that-lift-you-in-youtube-viewership-for-2024/"><u>[Updated] The Components That Lift You in YouTube Viewership for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/connecting-to-a-vpn-from-an-iphone-can-be-tricky-fix-connection-problems-using-these-7-methods/"><u>Connecting to a VPN From an iPhone Can Be Tricky: Fix Connection Problems Using These 7 Methods</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/free-online-converter-turning-wav-files-into-mov-format-by-movavi/"><u>Free Online Converter: Turning WAV Files Into MOV Format by Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/gratis-video-format-converter-mpeg-to-mjpeg-professioneel-techniek-movavi/"><u>Gratis Video-Format Converter MPEG to MJPEG - Professioneel Techniek - Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guia-completa-para-cambiar-tu-pelicula-al-dvd-en-linea-desde-vob-a-wmv-gratis-herramientas-e-instrucciones-incluyendo-movavi/"><u>Guía Completa Para Cambiar Tu Película Al DVD en Linea Desde VOB a WMV Gratis: Herramientas E Instrucciones Incluyendo Movavi</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-vivo-y100a-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo Y100A Fingerprint Lock</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-update-removal-on-your-pc-uninstall-windows-1011-changes-with-ease/"><u>Mastering Update Removal on Your PC: Uninstall Windows 10/11 Changes with Ease</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/movavis-no-cost-m4v-to-flv-video-conversion-tool-available-online-now/"><u>Movavi's No-Cost M4V to FLV Video Conversion Tool Available Online Now!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/projector-purchasing-insights-key-considerations-you-cant-ignore/"><u>Projector Purchasing Insights: Key Considerations You Can't Ignore</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/recordcast-review-for-2024/"><u>RecordCast Review for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/transformacion-gratuita-de-archivos-avi-a-mpeg-online-con-convertidor-gratuitos-de-movavi/"><u>Transformación Gratuita De Archivos AVI a MPEG Online Con Convertidor Gratuitos De Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/webm-format-explained-master-the-art-of-opening-and-conversion-techniques/"><u>WebM Format Explained: Master the Art of Opening & Conversion Techniques</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-11-mp4mp3/"><u>Windows 11での動画・音楽再生音量設定 - MP4、MP3含む多形式対応ガイド</u></a></li>
 </ul></div>
 

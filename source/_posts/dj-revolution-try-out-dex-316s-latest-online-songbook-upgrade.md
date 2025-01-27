@@ -1,7 +1,7 @@
 ---
 title: "DJ Revolution: Try Out DEX 3.16'S Latest Online Songbook Upgrade!"
-date: 2025-01-14T06:07:49.344Z
-updated: 2025-01-21T07:09:27.174Z
+date: 2025-01-24T17:58:32.767Z
+updated: 2025-01-26T19:37:04.554Z
 tags:
   - product
 categories:
@@ -44,7 +44,7 @@ OK, enough for the serious stuff — you want to download and test!
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1 "Login Screen")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/login-1st-slide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1) Open up DEX 3.16 and click the Options button. Under the “Karaoke” tab, click on the “Login to KSR” button. 
@@ -60,31 +60,23 @@ OK, enough for the serious stuff — you want to download and test!
 [View Larger Image ![](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/authorizeapp-4thslide.jpg?fit=1030%2C575&ssl=1 "Authorize App")](https://i0.wp.com/pcdj.com/wp-content/uploads/2021/04/authorizeapp-4thslide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4) Click on “Authorize”. 
 
 [View Larger Image ![](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/choosewhattoshare-partytymeandkaraokecatalog-youwillbepromotedtorestart-restart-5thslide.jpg?fit=1030%2C575&ssl=1 "Choose what to share with singers")](https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/choosewhattoshare-partytymeandkaraokecatalog-youwillbepromotedtorestart-restart-5thslide.jpg?fit=1030%2C575&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5) Select the karaoke song lists you wish to share with your singers (Karaoke Catalog for your own music (we’ll explain more below) and Party Tyme Subscription content if you’re a subscriber). You will be prompted to restart after each selection, but wait until each box is checked first. 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1 "Restart")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/restartdex3-6thslide.jpg?fit=1030%2C575&ssl=1)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6) Restart DEX 3\. 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/dragsongsintokaraokecataloglist-7thslide.jpg?fit=1030%2C575&ssl=1 "create list")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/dragsongsintokaraokecataloglist-7thslide.jpg?fit=1030%2C575&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 7) Add your own karaoke music to the “Karaoke Catalog” special list (located under Special Lists). You can select all your karaoke songs and drag/drop to the list to populate it, or only the karaoke songs you wish to share with singers (currently capped at 100,000 total songs). 
@@ -94,6 +86,10 @@ OK, enough for the serious stuff — you want to download and test!
 8) Go into DEX 3’s options and under the “Karaoke” tab click the “Update KSR Songbook” button to sync your list of karaoke music. You will be asked to add a venue/songbook name. Create a unique name and click “OK”. 
 
 [View Larger Image ![](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/afterbooksync-confirmationandvenueID-9thslide.jpg?fit=1030%2C575&ssl=1 "confirm")](https://i1.wp.com/pcdj.com/wp-content/uploads/2021/04/afterbooksync-confirmationandvenueID-9thslide.jpg?fit=1030%2C575&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 9) You will be assigned a unique venue ID. It’s this ID number you share with your singers. Singer will need to go to [ksr.pcdj.com](https://tools.techidaily.com/pcdj/products/) and create a free account. They will then be prompted for your venue ID. Once they apply the ID they can view, search, and make request from your online karaoke song book. 
 
@@ -110,6 +106,10 @@ The screenshots displayed above are of the ‘ KSR web app’ that your karaoke 
 Please feel free to test the new KSR system with DEX 3.16\. If you have issues or suggestions, post them in the [Official PCDJ User Group](http://www.facebook.com/groups/pcdjusergroup/) on Facebook (you will find a pinned thread regarding the new DEX 3.16 Release Candidate – please post reports in that specific thread).
 
 _**Enjoy!**_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### _Related_
 
@@ -130,19 +130,17 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2021/04/ksr-coverimage-1.jpg?fit=1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mastering-obs-and-zoom-simplified-integration-guide/"><u>[Updated] 2024 Approved Mastering OBS & Zoom Simplified Integration Guide</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-tips-for-enhancing-online-presence-with-imovie-on-vimeo/"><u>[Updated] 2024 Approved Tips for Enhancing Online Presence with iMovie on Vimeo</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-expert-strategies-for-efficient-io-screen-recording/"><u>2024 Approved Expert Strategies for Efficient IO Screen Recording</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728485456539-usb/"><u>如何使用三種技巧伸張USB存取記錄片的未配置容量</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/complete-guide-on-restoring-deleted-files-from-your-computers-disk/"><u>Complete Guide on Restoring Deleted Files From Your Computer's Disk</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/complete-tutorial-on-inscribing-iso-images-onto-drives-with-the-help-of-aomei-backupper-software/"><u>Complete Tutorial on Inscribing ISO Images Onto Drives with the Help of AOMEI Backupper Software</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/could-your-graphics-card-be-the-culprit-in-computer-failures-understanding-the-risks-with-yl-software-experts/"><u>Could Your Graphics Card Be the Culprit in Computer Failures? Understanding the Risks with YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/des-fichiers-encodes-par-inadvertance-quelles-mesures-precautionneires-adopter/"><u>Des Fichiers Encodés Par Inadvertance : Quelles Mesures Précautionneires Adopter ?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-update-sas-software-on-your-pc-compatible-with-windows-10-8-and-7/"><u>Download and Update SAS Software on Your PC: Compatible with Windows 10, 8, and 7</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/effective-solutions-and-expert-advice-securing-your-pc-with-the-windows-defender-firewall-in-windows-11/"><u>Effective Solutions & Expert Advice: Securing Your PC with the Windows Defender Firewall in Windows 11</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-pro-without-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Pro Without Passcode?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-youtubes-algorithm-as-a-game-streamer/"><u>Navigating YouTube's Algorithm as a Game Streamer</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/preferred-practices-for-streaming-video-recording-on-youtube/"><u>Preferred Practices for Streaming Video Recording on YouTube</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/zdnets-camera-duel-pixel-9xl-against-iphone-15-pro-stunning-results-and-a-shocking-twist/"><u>ZDNet's Camera Duel: Pixel 9XL Against iPhone 15 Pro - Stunning Results & a Shocking Twist!</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-becoming-a-pro-at-visual-effects-creation/"><u>[New] In 2024, Becoming a Pro at Visual Effects Creation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-expertise-in-film-perfecting-the-art-of-chroma-key/"><u>[New] In 2024, Expertise in Film Perfecting the Art of Chroma Key</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-bend-the-rules-of-livestreaming-on-youtube-without-a-subscriber-hurdle/"><u>[Updated] Bend the Rules of Livestreaming on YouTube, Without a Subscriber Hurdle</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-advanced-mac-image-compiler/"><u>[Updated] In 2024, Advanced Mac Image Compiler</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-maximize-impact-mastering-instagram-video-transforms-into-mp4/"><u>[Updated] In 2024, Maximize Impact Mastering Instagram Video Transforms Into MP4</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-fix-a-broken-gpu-expert-advice-from-yl-computing-the-ultimate-guide/"><u>Can You Fix a Broken GPU: Expert Advice From YL Computing - The Ultimate Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/does-windows-defender-operate-correctly-insights-from-yl-software-experts/"><u>Does Windows Defender Operate Correctly? Insights From YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/enhancing-your-laptop-speed-and-power-a-compreh-groph-guide-by-yl-computing-with-yl-software-innovations/"><u>Enhancing Your Laptop Speed and Power: A Compreh Groph Guide by YL Computing with YL Software Innovations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-samsung-galaxy-a15-4g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Samsung Galaxy A15 4G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-15-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 15 Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-workouts-on-a-budget-a-closer-look-at-fitbit-versa-lites-features/"><u>Maximizing Your Workouts on a Budget: A Closer Look at Fitbit Versa Lite's Features</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/pcdj-and-dex-3-now-compatible-with-macos-big-sur-enhancements-in-djing-software/"><u>PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software</u></a></li>
 </ul></div>
 

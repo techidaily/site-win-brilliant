@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2025-01-17T01:36:04.262Z
-updated: 2025-01-20T22:59:03.602Z
+date: 2025-01-21T02:20:05.673Z
+updated: 2025-01-26T20:32:03.718Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,17 +60,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-configure-storage-of-captured-mac-screen/"><u>[New] In 2024, Configure Storage of Captured Mac Screen</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-the-evolution-continues-iphone-xs-photographic-advancements/"><u>[New] In 2024, The Evolution Continues IPhone X's Photographic Advancements</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-navigating-your-digital-past-with-fbs-preview-feature/"><u>[New] Navigating Your Digital Past with FB's Preview Feature</u></a></li>
-<li><a href="https://blog-min.techidaily.com/creating-a-continuous-dvd-cycle-a-step-by-step-guide-on-looping-dvds/"><u>Creating a Continuous DVD Cycle: A Step-by-Step Guide on Looping DVDs</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/curious-about-why-your-iphone-continuously-snaps-copies-of-images-discover-effective-ways-to-halt-duplication/"><u>Curious About Why Your iPhone Continuously Snaps Copies of Images? Discover Effective Ways to Halt Duplication!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722892228339-discover-these-6-exceptional-no-cost-photo-manipulation-tools/"><u>Discover These 6 Exceptional No-Cost Photo Manipulation Tools</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/efficiently-mass-deploy-windows-7-across-several-pcs-using-a-single-imaged-setup/"><u>Efficiently Mass-Deploy Windows 7 Across Several PCs Using a Single Imaged Setup</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-techniques-for-efficient-zoom-meeting-recordings/"><u>In 2024, Techniques for Efficient Zoom Meeting Recordings</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/step-by-step-tutorial-on-rescuing-your-cr2-images-from-compromised-sd-media/"><u>Step-by-Step Tutorial on Rescuing Your CR2 Images From Compromised SD Media</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/transforming-multimedia-content-effortless-cross-platform-video-conversion-with-winx-mobile-video-converter/"><u>Transforming Multimedia Content: Effortless Cross-Platform Video Conversion with WinX Mobile Video Converter</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/wet-weather-warriors-7-powerful-camera-choices/"><u>Wet Weather Warriors #7 Powerful Camera Choices</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-11-0/"><u>Windows 11 バックアップサイズが0バイトの問題を解消した！</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-chromebook-zoom-techniques-unveiled/"><u>[Updated] Expert Chromebook Zoom Techniques Unveiled</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/come-costruire-una-chiave-usb-bootable-in-windows-7-guida-completa/"><u>Come Costruire Una Chiave USB Bootable in Windows 7 - Guida Completa</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/comprehensive-guide-to-revamp-your-pcs-audio-with-updated-corsair-headset-drivers-on-windows/"><u>Comprehensive Guide to Revamp Your PC's Audio with Updated Corsair Headset Drivers on Windows</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/download-free-apps-how-to-retrieve-accidentally-deleted-files-from-the-recycle-bin/"><u>Download Free Apps: How to Retrieve Accidentally Deleted Files From the Recycle Bin</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expert-tutorial-retrieving-lost-data-from-vhd-and-vhdx-virtual-disks/"><u>Expert Tutorial: Retrieving Lost Data From VHD and VHDX Virtual Disks</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-iframe-dll-malfunctions-in-windows-systems-effortlessly/"><u>Fixing iFrame DLL Malfunctions in Windows Systems Effortlessly</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guide-complet-de-sauvegarde-et-restauration-dimage-pour-windows-11/"><u>Guide Complet De Sauvegarde Et Restauration D'Image Pour Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-samsung-galaxy-a34-5g-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-xiaomi-redmi-12-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Xiaomi Redmi 12 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ghostly-gag-gallery/"><u>In 2024, Ghostly Gag Gallery</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-terrarium-tales-the-top-five-gold-quests/"><u>In 2024, Terrarium Tales The Top Five Gold Quests</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-file-navigation-in-emeditor-with-regular-expressions-includingexcluding-matches/"><u>Mastering File Navigation in EmEditor with Regular Expressions: Including/Excluding Matches</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/planvolle-systemwiederherstellung-mit-aomei-backupper-die-perfekte-methode/"><u>Planvolle Systemwiederherstellung Mit AOMEI Backupper: Die Perfekte Methode</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/rpi-backup-mastery-utilizar-el-simbolo-del-sistema-para-proteger-tus-datos-4-tecnicas-esenciales/"><u>RPI Backup Mastery: Utilizar El Símbolo Del Sistema Para Proteger Tus Datos (4 Técnicas Esenciales)</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/schritt-fur-schritt-anleitung-zum-entsorgen-eines-ipod-touchklassikshuffles/"><u>Schritt-Für-Schritt-Anleitung Zum Entsorgen Eines iPod Touch/Klassik/Shuffles</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/streamline-and-optimize-google-for-podcasters-for-2024/"><u>Streamline & Optimize Google for Podcasters for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-insiders-handbook-to-successfully-repairing-failed-windows-update-mishaps/"><u>The Insider's Handbook to Successfully Repairing Failed Windows Update Mishaps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX and RED Mod Update v3.5.5 - New Features & Improvements
-date: 2025-01-17T06:30:01.490Z
-updated: 2025-01-21T09:25:37.210Z
+date: 2025-01-24T04:24:44.185Z
+updated: 2025-01-27T05:04:23.280Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### All Changes Included In 3.5.5
@@ -50,7 +50,7 @@ Both **free updates for existing users** address a previous issue logging in to 
 Existing DEX 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/) — Existing RED Mobile 3 users can install the free update [HERE](https://tools.techidaily.com/pcdj/products/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -72,21 +72,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/12/djsoftware355updates-cover
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-building-impressive-instagram-story-bookmarks/"><u>[Updated] Building Impressive Instagram Story Bookmarks</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-you-use-windows-defender-on-a-mac-machine-insights-from-yl-computing/"><u>Can You Use Windows Defender on a Mac Machine? - Insights From YL Computing</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-memorable-announcements-the-key-to-successful-facebook-giving-posts/"><u>Crafting Memorable Announcements The Key to Successful Facebook Giving Posts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-fix-an-unresponsive-printer-quickly-and-effectively-yl-software-expertise-inside/"><u>How to Fix an Unresponsive Printer Quickly & Effectively, YL Software Expertise Inside!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-set-a-new-standard-printer-in-windows-tips-from-yl-software-experts/"><u>How To Set a New Standard Printer In Windows: Tips From YL Software Experts</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-branding-beyond-words-eye-catching-podcast-graphics/"><u>In 2024, Branding Beyond Words Eye-Catching Podcast Graphics</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ative-templates-for-stellar-youtube-video-decks/"><u>Innovative Templates for Stellar YouTube Video Decks</u></a></li>
-<li><a href="https://win-able.techidaily.com/innovative-youtube-uploaders-unconventional-methods-to-overcome-video-upload-challenges/"><u>Innovative YouTube Uploaders: Unconventional Methods to Overcome Video Upload Challenges</u></a></li>
-<li><a href="https://article-files.techidaily.com/perfecting-your-green-screen-workflow-with-kinemaster-for-2024/"><u>Perfecting Your Green Screen Workflow with KineMaster for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/powergenius-dj-essentials-the-rotating-usb-outlet-and-cable-organizer-by-accellcables/"><u>PowerGenius DJ Essentials: The Rotating USB Outlet & Cable Organizer by AccellCables</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resolving-missing-ocidll-files-on-your-pc/"><u>Resolving Missing oci.dll Files on Your PC</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/revealing-secrets-in-compressed-formats-how-to-access-zip-archive-content-with-yl-tech-advice/"><u>Revealing Secrets in Compressed Formats: How to Access Zip Archive Content with YL Tech Advice</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/say-goodbye-to-paywalls-with-free-video-handling-tools-for-2024/"><u>Say Goodbye to Paywalls with Free Video Handling Tools for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-veiled-side-of-instagram-stories-what-youre-not-seeing-for-2024/"><u>The Veiled Side of Instagram Stories What You're Not Seeing for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/top-methods-for-identifying-cpu-mistakes-expert-tips-from-yl-computing/"><u>Top Methods for Identifying CPU Mistakes: Expert Tips From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-the-rise-to-power-a-look-at-how-the-sui-empire-gained-dominance-over-china-yl-software/"><u>Understanding the Rise to Power: A Look at How the Sui Empire Gained Dominance Over China – YL Software</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-free-mobile-live-stream-apps-essentials-for-smartphones/"><u>[New] Free Mobile Live Stream Apps Essentials for Smartphones</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-crucial-steps-in-archiving-lol-matchups/"><u>2024 Approved Crucial Steps in Archiving LOL Matchups</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/como-crear-un-clon-perfecto-del-disco-duro-en-sistemas-operativos-windows-1187-tecnica-detallada-de-copia-de-seguridad/"><u>Cómo Crear Un Clon Perfecto Del Disco Duro en Sistemas Operativos Windows 11/8/7 - Técnica Detallada De Copia De Seguridad</u></a></li>
+<li><a href="https://video-capture.techidaily.com/discover-the-best-free-subtitle-software-the-1-choices-for-effortless-video-transcription-and-captions/"><u>Discover the Best FREE Subtitle Software: The #1 Choices for Effortless Video Transcription & Captions</u></a></li>
+<li><a href="https://win-able.techidaily.com/essential-fixes-getting-tekken-amoored-pc-version-up-and-running-again/"><u>Essential Fixes: Getting Tekken Amoored PC Version Up and Running Again</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/fehlerfreies-backup-einer-sql-datenbank-auf-entfernte-speicherorte-sichern/"><u>Fehlerfreies Backup Einer SQL-Datenbank Auf Entfernte Speicherorte Sichern</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-new-age-of-games-debate-the-best-vr-headsets-today/"><u>In 2024, A New Age of Games? Debate the Best VR Headsets Today</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/optimale-software-fur-spezifische-sector-cloning-mit-aomei-backupper/"><u>Optimale Software Für Spezifische Sector-Cloning Mit AOMEI Backupper</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/passo-a-passo-para-fazer-o-resgate-do-seu-computador-via-imagem-do-sistema-em-versao-gratuita-para-windows/"><u>Passo a Passo Para Fazer O Resgate Do Seu Computador via Imagem Do Sistema Em Versão Gratuita Para Windows</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/synergistic-computing-chatgpt-and-the-apple-ecosystem/"><u>Synergistic Computing: ChatGPT and the Apple Ecosystem</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-guide-to-cost-free-cgi-mastery-via-4-youtube-experts-insights/"><u>The Ultimate Guide to Cost-Free CGI Mastery via 4 YouTube Experts' Insights</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-5-premier-ntfs-data-recovery-applications-a-comprehensive-guide/"><u>Top 5 Premier NTFS Data Recovery Applications: A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/troubleshooting-windows-startup-issues-fixing-the-cannot-boot-from-cd-error/"><u>Troubleshooting Windows Startup Issues: Fixing the 'Cannot Boot From CD' Error</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ultimate-techniques-for-total-data-cleansing-on-windows-11-devices/"><u>Ultimate Techniques for Total Data Cleansing on Windows 11 Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-notepad-blockade-uncover-the-7-pathways-to-access-it-again/"><u>Windows Notepad Blockade: Uncover the 7 Pathways to Access It Again</u></a></li>
 </ul></div>
 
