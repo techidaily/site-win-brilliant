@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2025-01-15T03:02:03.877Z
-updated: 2025-01-20T21:33:14.756Z
+date: 2025-02-02T23:24:07.538Z
+updated: 2025-02-08T17:38:20.380Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,22 +46,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-clubbing-essentials-top-rated-dj-template-vids/"><u>[New] 2024 Approved Clubbing Essentials Top-Rated DJ Template Vids</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-a-guide-to-top-5-text-effects-downloading-sites/"><u>[New] In 2024, A Guide to Top 5 Text Effects Downloading Sites</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/aster-your-hashtags-the-path-to-6-figure-youtube-success-for-2024/"><u>[New] Master Your Hashtags The Path to 6-Figure Youtube Success for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-streamline-media-management-with-top-10plus-free-instagram-to-mp4-converters-for-2024/"><u>[New] Streamline Media Management with Top 10+ Free Instagram-to-MP4 Converters for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-encompassing-understanding-the-essence-of-googles-podcasts-app/"><u>[Updated] Encompassing Understanding The Essence of Google's Podcasts App</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726028047594-pc3/"><u>美しい画像プレゼンテーションを構築するためのPC上での3つの効果的な方法</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/beating-the-blues-effective-strategies-to-resolve-windows-update-error-configuration/"><u>Beating the Blues: Effective Strategies to Resolve Windows Update Error Configuration</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/checking-if-your-graphics-card-works-with-your-pc-a-comprehensive-guide-yl-tech-solutions/"><u>Checking if Your Graphics Card Works With Your PC: A Comprehensive Guide - YL Tech Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/free-entry-to-the-ultimate-karaoke-summit-2e15-register-today-and-master-your-mixes/"><u>Free Entry to the Ultimate Karaoke Summit 2E15 - Register Today and Master Your Mixes!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-e46-m3-gtr-desktop-backgrounds-and-walls-premium-visual-content-by-yl-computing/"><u>High-Definition BMW E46 M3 GTR Desktop Backgrounds and Walls: Premium Visual Content by YL Computing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-key-methods-to-incorporate-facebook-live-into-website-designs/"><u>In 2024, Key Methods to Incorporate Facebook Live Into Website Designs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/master-the-art-of-social-media-stardom-with-these-9-strategies-for-2024/"><u>Master the Art of Social Media Stardom with These 9 Strategies for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726026902836-pc/"><u>PCにて自らの声を録音するステップバイステップマニュアル</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-program-failed-to-launch-issues-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Resolving 'Program Failed to Launch' Issues on Windows: A Comprehensive Guide - By YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/setting-up-automatic-computer-backups-via-windows-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Setting Up Automatic Computer Backups via Windows Control Panel - A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-windows-control-panel-a-guide-to-network-and-internet-settings-yl-software-solutions/"><u>Understanding Windows Control Panel: A Guide to Network & Internet Settings - YL Software Solutions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-expert-tips-for-smooth-cross-sounding-with-audacity/"><u>[New] 2024 Approved Expert Tips for Smooth Cross-Sounding with Audacity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-high-speed-sd-accessory-for-sony-a7c-model/"><u>[New] 2024 Approved High-Speed SD Accessory for Sony A7C Model</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/diagnosing-the-mystery-understanding-speaker-pop-noises-insights-by-yl-computing/"><u>Diagnosing the Mystery: Understanding Speaker Pop Noises - Insights by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/essential-questions-every-couple-must-discuss-with-their-wedding-dj-top-10-tips/"><u>Essential Questions Every Couple Must Discuss with Their Wedding DJ - Top 10 Tips</u></a></li>
+<li><a href="https://win-forum.techidaily.com/grabacion-sin-coste-transforma-tu-audio-wav-a-mp3-facilmente-usando-la-herramienta-de-conversion-online-de-movavi/"><u>Grabación Sin Coste: Transforma Tu Audio WAV a MP3 Fácilmente Usando La Herramienta De Conversión Online De Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-x7-screen-savers-and-desktop-icons-premium-graphics-by-yl-computing/"><u>High-Definition BMW X7 Screen Savers & Desktop Icons - Premium Graphics by YL Computing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebook-media-extractor-quick-mp3-downloads/"><u>In 2024, Facebook Media Extractor – Quick MP3 Downloads</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-6s-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 6s</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-the-ultimate-routine-for-accessing-and-playing-fb-videos-via-apple-tv/"><u>In 2024, The Ultimate Routine for Accessing and Playing FB Videos via Apple TV</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-ntfs-enablingdisabling-file-compression/"><u>Mastering NTFS: Enabling/Disabling File Compression</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/pcdj-annual-roundup-reflecting-on-the-highlights-of-2014/"><u>PCDJ Annual Roundup - Reflecting on the Highlights of 2014</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/retro-inspired-ford-collection-premium-visual-graphics-by-yl-software-for-desktop-and-mobile-use/"><u>Retro-Inspired Ford Collection - Premium Visual Graphics by YL Software for Desktop and Mobile Use</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/solving-your-scanners-connection-problems-a-step-by-step-guide-yl-computing/"><u>Solving Your Scanner's Connection Problems: A Step-by-Step Guide - YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/the-crucial-confrontation-at-red-cliffs-unveiling-its-role-in-moulding-chinese-history-a-yl-software-perspective/"><u>The Crucial Confrontation at Red Cliffs: Unveiling Its Role in Moulding Chinese History – A YL Software Perspective</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-motorola-razr-40-ultra-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Motorola Razr 40 Ultra for Parents | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/yl-softwares-premium-acura-nsx-visual-gallery-stunning-2019-car-photos-for-desktop-backgrounds/"><u>YL Software's Premium Acura NSX Visual Gallery: Stunning 2019 Car Photos for Desktop Backgrounds</u></a></li>
 </ul></div>
 

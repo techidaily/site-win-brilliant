@@ -1,7 +1,7 @@
 ---
 title: "Mastering File Navigation in EmEditor with Regular Expressions: Including/Excluding Matches"
-date: 2024-12-13T10:31:18.807Z
-updated: 2024-12-14T19:43:05.620Z
+date: 2025-02-06T00:42:28.750Z
+updated: 2025-02-09T07:49:19.080Z
 tags:
   - product
 categories:
@@ -82,21 +82,23 @@ Viewing 6 posts - 1 through 6 (of 6 total)
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-superb-simple-countdown-apps-for-free-for-2024/"><u>[New] Superb Simple Countdown Apps for Free for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-a-complete-overview-of-polarr-photo-editor-for-2024/"><u>[Updated] A Complete Overview of Polarr Photo Editor for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-change-youtube-playback-speed-to-speed-up-or-slow-down-video/"><u>[Updated] How to Change YouTube Playback Speed to Speed Up or Slow Down Video</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-audio-experts-choice-best-6-microphone-picks-for-online-broadcasting/"><u>[Updated] In 2024, Audio Experts' Choice Best 6 Microphone Picks for Online Broadcasting</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-easy-steps-to-updating-your-windows-device-drivers-tips-by-yl-computing/"><u>1. Easy Steps to Updating Your Windows Device Drivers - Tips by YL Computing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-tier-aerial-vehicles-sold-here/"><u>2024 Approved Top-Tier Aerial Vehicles Sold Here</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-using-a-registry-optimization-tool-benefit-your-pc-performance-find-out-with-yl-softwares-guide/"><u>Can Using a Registry Optimization Tool Benefit Your PC Performance? Find Out with YL Software’s Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/ensuring-proper-hardware-linkage-on-pcs-expert-advice-by-yl-software-specialists/"><u>Ensuring Proper Hardware Linkage on PCs: Expert Advice by YL Software Specialists</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-google-pixel-7a-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Google Pixel 7a Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/maximizing-audio-quality-expert-techniques-to-enhance-your-dj-setup-with-pcdj-watch-our-djntv-guide/"><u>Maximizing Audio Quality: Expert Techniques to Enhance Your DJ Setup with PCDJ – Watch Our #DJNTV Guide!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/troubleshooting-low-resolution-scans-improve-your-image-output-with-yl-computings-expert-advice/"><u>Troubleshooting Low-Resolution Scans: Improve Your Image Output with YL Computing's Expert Advice</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/winxvideo-ai-effizientes-video-und-audio-konvertieren-durch-gpu-technologie-fur-optimale-leistung/"><u>Winxvideo AI - Effizientes Video Und Audio Konvertieren Durch GPU-Technologie Für Optimale Leistung</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-essential-list-of-minuscule-uavs-2021/"><u>[New] Essential List of Minuscule UAVs 2021</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-basic-strategy-revamping-fishy-windowspeak/"><u>[Updated] 2024 Approved Basic Strategy Revamping Fishy Windowspeak</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-best-image-safekeepers-online-for-2024/"><u>[Updated] Best Image Safekeepers Online for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726222098139-wtv-wmv-movavi/"><u>「ワンクリックで無料オンラインWTV WMV Movaviへの変換ガイド」</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/como-diminuir-o-tamanho-dos-seus-arquivos-mov-online-e-gratuitamente-top-7-dicas/"><u>Como Diminuir O Tamanho Dos Seus Arquivos MOV Online E Gratuitamente - Top 7 Dicas</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/expertly-crafted-list-the-ultimate-six-benefits-for-procuring-an-apple-watch-featured-by-a-wearable-specialist-at-zdnet/"><u>Expertly Crafted List: The Ultimate Six Benefits for Procuring an Apple Watch, Featured by a Wearable Specialist at ZDNet</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guia-rapida-para-convertir-videos-wmv-en-musica-aiff-gratuita-a-traves-de-software-en-linea/"><u>Guía Rápida Para Convertir Videos WMV en Música AIFF Gratuita a Través De Software en Línea</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-handle-illegal-game-entry-error-messages-successfully/"><u>How to Handle 'Illegal Game Entry' Error Messages Successfully</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-realme-by-fonelab-android-recover-music/"><u>How to restore wiped music on Realme</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-face-id-to-pay-for-apple-tvplus-on-iphone-12-mini-by-drfone-ios-unlock-ios-unlock/"><u>How to Use Face ID to Pay for Apple TV+ on iPhone 12 mini</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-8-things-to-consider-before-buying-next-lens-for-4k-camera/"><u>In 2024, 8 Things to Consider Before Buying Next Lens for 4K Camera</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-overtime-highlights-a-step-by-step-tutorial-for-saving-overwatchs-best-plays/"><u>Mastering Overtime Highlights: A Step-by-Step Tutorial for Saving Overwatch's Best Plays</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/transformer-un-fichier-audio-m4b-en-format-mp4-gratuit-sur-internet-avec-movavi/"><u>Transformer Un Fichier Audio M4B en Format MP4 Gratuit - Sur Internet Avec Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vob/"><u>VOBファイルを完全無料でオンライン変換 - 動画魔童</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

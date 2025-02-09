@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2025-01-14T23:23:41.457Z
-updated: 2025-01-20T19:56:09.126Z
+date: 2025-02-03T04:28:18.215Z
+updated: 2025-02-08T16:15:45.225Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
@@ -59,7 +59,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,18 +81,18 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-brilliant.techidaily.com/1728499409236-windows/"><u>「完全修復後のWindowsサーバーにおけるバックアップ機能不足」</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-luminary-lessons-teaching-the-power-of-proper-lighting/"><u>2024 Approved Luminary Lessons Teaching the Power of Proper Lighting</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-streamlining-video-production-with-clear-sound-effects/"><u>2024 Approved Streamlining Video Production with Clear Sound Effects</u></a></li>
-<li><a href="https://games-able.techidaily.com/high-performance-portable-computing-made-simple-pdw4/"><u>High-Performance Portable Computing Made Simple: PDW4</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/league-of-legends-performance-hiccups-heres-how-to-tackle-them-swiftly/"><u>League of Legends Performance Hiccups? Here's How to Tackle Them Swiftly</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-windows-11-hresult-0x87e00196-a-comprehensive-guide/"><u>Resolving Windows 11 HRESULT 0X87E00196: A Comprehensive Guide</u></a></li>
-<li><a href="https://win-able.techidaily.com/simple-solutions-for-uninterrupted-gaming-resolving-outriders-crash-issues/"><u>Simple Solutions for Uninterrupted Gaming: Resolving Outriders' Crash Issues</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-how-to-reset-your-computers-bios-by-clearing-the-cmos/"><u>Step-by-Step Guide: How to Reset Your Computer's BIOS by Clearing the CMOS</u></a></li>
-<li><a href="https://some-tips.techidaily.com/step-by-step-tutorial-transforming-mp4-audio-tracks-into-mp3-files-with-the-movavi-app-on-mac-computers/"><u>Step-by-Step Tutorial: Transforming MP4 Audio Tracks Into MP3 Files with the Movavi App on Mac Computers</u></a></li>
-<li><a href="https://article-helps.techidaily.com/unlock-creative-expression-master-device-based-filters-and-effects/"><u>Unlock Creative Expression Master Device-Based Filters and Effects</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/use-specialized-file-recovery-software-that-supports-the-mlv-format-or-other-multimedia-formats-if-its-not-available-for-mlv-specifically/"><u>Use Specialized File Recovery Software that Supports the MLV Format or Other Multimedia Formats if It's Not Available for MLV Specifically.</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/wie-man-emails-sicher-exportiert-masterclass-fur-den-transfer-von-mails-vom-postfach-auf-macos/"><u>Wie Man Emails Sicher Exportiert: Masterclass Für Den Transfer Von Mails Vom Postfach Auf macOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-sniff-out-recent-unfollowers-on-instagram/"><u>[Updated] In 2024, Sniff Out Recent Unfollowers on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-the-art-of-insta-top-gadgets-for-success/"><u>[Updated] Mastering the Art of Insta Top Gadgets for Success</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-free-online-conversion-easily-convert-oma-file-format-with-omniconverter/"><u>1. Free Online Conversion: Easily Convert OMA File Format with OmniConverter</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-pixelwizard-a-comprehensive-top-10-list-of-replacements/"><u>2024 Approved PixelWizard A Comprehensive Top 10 List of Replacements</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726224700834-vob-asf-movavi/"><u>免費線上 VOB 改編為 ASF 格式 - 利用 Movavi 的換片器功能</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726218582590-movavi/"><u>迅速學習簡化影片反轉方法 - 提高媒體編輯技能的Movavi指南</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/delving-into-recmeisters-capabilities-for-quality-video-capture/"><u>Delving Into Recmeister’s Capabilities for Quality Video Capture</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-itel-p40-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Itel P40 Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-preventing-social-media-platforms-intrusive-ads/"><u>In 2024, Preventing Social Media Platform's Intrusive Ads</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-cropping-in-imovie-the-ultimate-step-by-step-tutorial/"><u>Mastering Cropping in iMovie: The Ultimate Step-by-Step Tutorial</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/nar-du-kan-finne-horer-pa-nettet-easy-to-use-audio-extractor-fra-video/"><u>Når Du Kan Finne Hører På Nettet: Easy-to-Use Audio Extractor Fra Video</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unbox-and-discover-samsungs-ue590-4k-freesync-marvel-for-2024/"><u>Unbox and Discover Samsung's UE590 4K, FreeSync Marvel for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726224319441-movavi/"><u>お手軽にオンライン動画トレイト編集：Movaviフリーアプリ利用方法</u></a></li>
 </ul></div>
 
