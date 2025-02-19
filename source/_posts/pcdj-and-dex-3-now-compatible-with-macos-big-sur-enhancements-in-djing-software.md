@@ -1,7 +1,7 @@
 ---
 title: "PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software"
-date: 2025-02-04T03:03:17.333Z
-updated: 2025-02-09T00:08:57.816Z
+date: 2025-02-17T06:00:12.983Z
+updated: 2025-02-18T21:37:48.966Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ Unlike macOS Catalina, which did require DEX 3 DJs to wait on upgrading for a fe
 If you haven’t already, [download and try the latest DEX 3.15 DJ software release](https://tools.techidaily.com/pcdj/products/) with macOS Big Sur, now with support for [Beatport LINK and Beatsource LINK](https://tools.techidaily.com/pcdj/products/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,14 +44,16 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2020/11/macOS-Big-Sur-800x450.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-video-downloader-how-to-download-twitter-videos-to-iphone/"><u>[Updated] Twitter Video Downloader How to Download Twitter Videos to iPhone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/best-buys-top-discounted-products-for-june-202n-exclusive-insights-from-zdnet/"><u>Best Buy's Top Discounted Products for June 202N: Exclusive Insights From ZDNet</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/free-arw-file-conversion-tool-upload-and-convert-online-with-ease/"><u>Free ARW File Conversion Tool - Upload and Convert Online with Ease</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-excel-as-a-data-expert-top-5-strategies-revealed-on-zdnet/"><u>How To Excel as a Data Expert: Top 5 Strategies Revealed on ZDNet</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/understanding-the-causes-of-your-pcs-overheating-issues-insights-from-yl-computing/"><u>Understanding the Causes of Your PC's Overheating Issues - Insights From YL Computing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-privishield-shield-and-cam-cover/"><u>[New] PriviShield Shield & Cam Cover</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-essential-igtv-feeds-for-modern-viewers/"><u>[Updated] Essential IGTV Feeds for Modern Viewers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/an-introductory-guide-to-navigating-your-way-through-zoom-webinars-for-2024/"><u>An Introductory Guide to Navigating Your Way Through Zoom Webinars for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/best-free-mac-pdf-editor-software-top-10-recommendations/"><u>Best Free Mac PDF Editor Software: Top 10 Recommendations</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/best-screen-capture-tools-purchase-now/"><u>Best Screen Capture Tools - Purchase Now</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/como-convertir-archivo-mp4-al-formato-mpeg-de-manera-gratuita-con-herramientas-en-linea-movavi/"><u>Cómo Convertir Archivo MP4 Al Formato MPEG De Manera Gratuita Con Herramientas en Línea - Movavi</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-infinix-note-30-vip-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Infinix Note 30 VIP and Browser | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-visionary-screen-supercharging-ultimate-hd-transformation/"><u>In 2024, Visionary Screen Supercharging Ultimate HD Transformation</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/moving-your-images-from-one-icloud-to-a-new-account-step-by-step-guide/"><u>Moving Your Images From One iCloud to a New Account – Step-by-Step Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mp3-mp4/"><u>MP3 转换为 MP4（免费、快速指南） | 无限制播放</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-for-printer-availability-on-windows-11/"><u>Strategies for Printer Availability on Windows 11</u></a></li>
 </ul></div>
 

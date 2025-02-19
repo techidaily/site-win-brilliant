@@ -1,7 +1,7 @@
 ---
 title: "New DJ Mixing Software Release: PCDJ DeX v3.1, Available for Instant Download!"
-date: 2025-02-07T17:22:02.640Z
-updated: 2025-02-08T22:57:51.500Z
+date: 2025-02-14T01:49:16.474Z
+updated: 2025-02-18T19:49:51.260Z
 tags:
   - product
 categories:
@@ -62,7 +62,7 @@ DirectX/ASIO compatible multichannel soundcard (Mac: multichannel Core Audio sou
 ##### VIDEO DEMONSTRATION OF THE NEW “LIST MODE” INCLUDED IN THE DEX 3.1 UPDATE
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -84,15 +84,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/11/dex31update-blogcoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-transform-your-win11-sessions-with-advanced-zoom-skills/"><u>[New] 2024 Approved Transform Your Win11 Sessions with Advanced Zoom Skills</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-photos-to-pizzazz-android-and-iphones-prime-montage-software/"><u>[New] In 2024, Photos to Pizzazz Android & iPhone's Prime Montage Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-telegram-tactics-for-aspiring-marketers-a-compreeher-guide/"><u>[Updated] In 2024, Telegram Tactics for Aspiring Marketers A Compreeher Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-filmmakers-guide-to-capturing-clear-sea-footage/"><u>[Updated] In 2024, The Filmmaker's Guide to Capturing Clear Sea Footage</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/flat-screen-video-playback-issue-resolved-no-sound-with-movavi-othon/"><u>Flat-Screen Video Playback Issue Resolved - No Sound with Movavi Othon</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fuldstaendig-hjaelpsomhed-omsetning-af-alle-videotydmaerker-med-movavi-video-editor-og-det-bedste-kodeksudsaettelse/"><u>Fuldstændig Hjælpsomhed - Omsetning Af Alle Videotydmærker Med Movavi Video Editor Og Det Bedste Kodeksudsættelse</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/gratuito-e-online-converter-imagens-em-formato-pgm-com-a-ferramenta-de-conversao-de-imagens-do-movavi/"><u>Gratuito E Online: Converter Imagens Em Formato PGM Com a Ferramenta De Conversão De Imagens Do Movavi</u></a></li>
-<li><a href="https://win-studio.techidaily.com/professional-bmw-m6-image-collection-for-customized-backgrounds-premium-photos-and-pictures-by-yl-software/"><u>Professional BMW M6 Image Collection for Customized Backgrounds: Premium Photos & Pictures by YL Software</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/tre-metodi-ottimi-per-incorporare-suoni-in-una-registrazione-video/"><u>Tre Metodi Ottimi per Incorporare Suoni in Una Registrazione Video</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-conversion-made-simple-the-best-flv-tools-for-youtube/"><u>Video Conversion Made Simple The Best Flv Tools for YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-access-tiktok-content-directly-no-extra-cost/"><u>[New] 2024 Approved Access TikTok Content Directly - No Extra Cost</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-iphone-image-editing-learn-to-change-resolution/"><u>[New] In 2024, IPhone Image Editing Learn to Change Resolution</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-windows-10-ultimate-screen-capture-tool/"><u>[New] In 2024, Windows 10 Ultimate Screen Capture Tool</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-comprehensive-step-by-step-srt-mp4-enhancement/"><u>[Updated] 2024 Approved Comprehensive Step-by-Step SRT MP4 Enhancement</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-eloquentaiartisan-the-ai-empowered-editor-for-2024/"><u>[Updated] EloquentAIArtisan The AI-Empowered Editor for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-oneplus-ace-2v-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/como-crear-un-clon-perfecto-del-disco-duro-en-sistemas-operativos-windows-1187-tecnica-detallada-de-copia-de-seguridad/"><u>Cómo Crear Un Clon Perfecto Del Disco Duro en Sistemas Operativos Windows 11/8/7 - Técnica Detallada De Copia De Seguridad</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uch-can-you-earn-on-youtube-via-ad-revenue-for-2024/"><u>How Much Can You Earn on YouTube via Ad Revenue for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premier-comedy-photo-stylist-tool/"><u>In 2024, Premier Comedy Photo Stylist Tool</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/losungswege-fur-den-wiederherstellungsvorgang-von-iphone-screenshots-bei-displayproblemen/"><u>Lösungswege Für Den Wiederherstellungsvorgang Von iPhone Screenshots Bei Displayproblemen</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/passo-a-passo-para-fazer-o-resgate-do-seu-computador-via-imagem-do-sistema-em-versao-gratuita-para-windows/"><u>Passo a Passo Para Fazer O Resgate Do Seu Computador via Imagem Do Sistema Em Versão Gratuita Para Windows</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/sofortige-behebung-von-fehlermeldung-windows-0x80070005-schritt-fur-schritt-anleitung-inklusive-bildern/"><u>Sofortige Behebung Von Fehlermeldung Windows 0X80070005 – Schritt-Für-Schritt-Anleitung Inklusive Bildern</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-5-premier-ntfs-data-recovery-applications-a-comprehensive-guide/"><u>Top 5 Premier NTFS Data Recovery Applications: A Comprehensive Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/ultimate-techniques-for-total-data-cleansing-on-windows-11-devices/"><u>Ultimate Techniques for Total Data Cleansing on Windows 11 Devices</u></a></li>
 </ul></div>
 

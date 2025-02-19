@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2025-02-03T04:28:18.215Z
-updated: 2025-02-08T16:15:45.225Z
+date: 2025-02-17T02:59:29.292Z
+updated: 2025-02-18T21:48:10.131Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
@@ -59,7 +59,7 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -81,18 +81,19 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-sniff-out-recent-unfollowers-on-instagram/"><u>[Updated] In 2024, Sniff Out Recent Unfollowers on Instagram</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-the-art-of-insta-top-gadgets-for-success/"><u>[Updated] Mastering the Art of Insta Top Gadgets for Success</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1-free-online-conversion-easily-convert-oma-file-format-with-omniconverter/"><u>1. Free Online Conversion: Easily Convert OMA File Format with OmniConverter</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-pixelwizard-a-comprehensive-top-10-list-of-replacements/"><u>2024 Approved PixelWizard A Comprehensive Top 10 List of Replacements</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726224700834-vob-asf-movavi/"><u>免費線上 VOB 改編為 ASF 格式 - 利用 Movavi 的換片器功能</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726218582590-movavi/"><u>迅速學習簡化影片反轉方法 - 提高媒體編輯技能的Movavi指南</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/delving-into-recmeisters-capabilities-for-quality-video-capture/"><u>Delving Into Recmeister’s Capabilities for Quality Video Capture</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-itel-p40-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Itel P40 Data? | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-preventing-social-media-platforms-intrusive-ads/"><u>In 2024, Preventing Social Media Platform's Intrusive Ads</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/mastering-cropping-in-imovie-the-ultimate-step-by-step-tutorial/"><u>Mastering Cropping in iMovie: The Ultimate Step-by-Step Tutorial</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/nar-du-kan-finne-horer-pa-nettet-easy-to-use-audio-extractor-fra-video/"><u>Når Du Kan Finne Hører På Nettet: Easy-to-Use Audio Extractor Fra Video</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unbox-and-discover-samsungs-ue590-4k-freesync-marvel-for-2024/"><u>Unbox and Discover Samsung's UE590 4K, FreeSync Marvel for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726224319441-movavi/"><u>お手軽にオンライン動画トレイト編集：Movaviフリーアプリ利用方法</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-explore-our-top-5-affordable-keyboards-to-boost-your-gameplay/"><u>[New] Explore Our Top 5 Affordable Keyboards to Boost Your Gameplay</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-your-guide-to-free-non-networked-android-games/"><u>[Updated] Your Guide to Free, Non-Networked Android Games</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728481482307-hdd/"><u>「ローカルHDDに安全な方法でネットワークドライブをセーブするガイド」</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-post-a-link-on-instagram-stories-and-posts/"><u>2024 Approved How to Post a Link on Instagram Stories and Posts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-top-free-speech-to-text-apps-for-mac-you-need-to-try/"><u>2024 Approved Top Free Speech to Text Apps for Mac You Need to Try</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-trophy-chain-for-engaged-audiences/"><u>2024 Approved YouTube's Trophy Chain for Engaged Audiences</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/inland-ssd/"><u>最佳選擇 - Inland SSD複製軟件(無需付費) - 克服初次開機時的挑戰</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/come-aggiornare-o-ripristinare-windows-10-usando-la-riga-di-comando-una-guida-completa/"><u>Come Aggiornare O Ripristinare Windows 10 Usando La Riga Di Comando: Una Guida Completa</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/descubre-donde-se-guardan-tus-marcadores-de-internet-en-windows-una-guia-detallada-para-windows-10-y-11/"><u>Descubre Dónde Se Guardan Tus Marcadores De Internet en Windows: Una Guía Detallada Para Windows 10 Y 11</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/desde-cargar-hasta-guardar-guia-completa-para-la-conversion-de-archivos-flv-a-ogg-sin-costo-free-online/"><u>Desde Cargar Hasta Guardar: Guía Completa Para La Conversión De Archivos FLV a Ogg Sin Costo - Free Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-architecting-authoritative-adjuncts/"><u>In 2024, Architecting Authoritative Adjuncts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/las-mejores-herramientas-gratis-para-backup-de-windows-gro-10-explicadas-a-nivel-principiante/"><u>Las Mejores Herramientas Gratis Para Backup De Windows Gro 10 Explicadas a Nivel Principiante</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-s24-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy S24 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/verloren-gegangene-desktop-ordnersuchprogramme-fur-windows-1011-schnellhilfe-zur-wiederherstellung/"><u>Verloren Gegangene Desktop-Ordnersuchprogramme Für Windows 10/11 – Schnellhilfe Zur Wiederherstellung!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2025-02-08T01:11:15.320Z
-updated: 2025-02-09T00:29:25.502Z
+date: 2025-02-12T20:27:37.700Z
+updated: 2025-02-19T02:28:00.225Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,18 +60,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-transform-ideas-into-laughter-generate-text-memes/"><u>[New] In 2024, Transform Ideas Into Laughter Generate Text Memes</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unlock-insightful-revelations-instagram-snapshot-audiences/"><u>[Updated] Unlock Insightful Revelations Instagram Snapshot Audiences</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-iphone-pro-enhancing-photo-clarity-details-and-composition/"><u>2024 Approved IPhone Pro Enhancing Photo Clarity, Details & Composition</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/checking-if-your-graphics-card-works-with-your-pc-a-comprehensive-guide-yl-tech-solutions/"><u>Checking if Your Graphics Card Works With Your PC: A Comprehensive Guide - YL Tech Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-tips-for-restoring-default-graphic-configurations-on-windows-by-yl-software-experts/"><u>Easy Tips for Restoring Default Graphic Configurations on Windows by YL Software Experts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/expert-advice-additional-strategies-to-accelerate-your-computers-performance-learn-from-yl-computing/"><u>Expert Advice: Additional Strategies to Accelerate Your Computer's Performance - Learn From YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/free-entry-to-the-ultimate-karaoke-summit-2e15-register-today-and-master-your-mixes/"><u>Free Entry to the Ultimate Karaoke Summit 2E15 - Register Today and Master Your Mixes!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/get-your-gemini-slate-4-ready-free-pcdj-dextrose-controller-download-for-ultimate-mixing-skills/"><u>Get Your Gemini Slate 4 Ready: Free PCDJ Dextrose Controller Download for Ultimate Mixing Skills!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/implications-of-microsofts-latest-artificial-intelligence-advancements-on-portable-gaming-pc-markets/"><u>Implications of Microsoft's Latest Artificial Intelligence Advancements on Portable Gaming PC Markets</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-streamline-your-content-transform-videos-into-playful-animation-gifs/"><u>In 2024, Streamline Your Content Transform Videos Into Playful Animation Gifs</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-infinix-zero-5g-2023-turbo-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Infinix Zero 5G 2023 Turbo Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/turbocharging-pc-vram-with-windows-1011-tips-and-tricks/"><u>Turbocharging PC VRAM with Windows 10/11 Tips and Tricks</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-computings-720-collection-exclusive-shoe-graphics-wallpapers-and-more/"><u>YL Computing's 720 Collection: Exclusive Shoe Graphics, Wallpapers & More</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-learn-to-redefine-your-instagram-sound-with-ease-for-2024/"><u>[New] Learn to Redefine Your Instagram Sound with Ease for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-guide-to-delivering-engaging-ppt-in-google-meet-mobiledesktop/"><u>[Updated] In 2024, Guide to Delivering Engaging PPT in Google Meet (Mobile/Desktop)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-honor-100-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210546572-9781914529078-because-you-matter/"><u>Because You Matter | Free Book</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/desactiva-el-inicio-rapido-en-windows-11-tres-metodos-sencillos/"><u>Desactiva El Inicio Rápido en Windows 11: Tres Métodos Sencillos</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/lightweight-and-powerful-the-best-gan-based-usb-c-chargers-for-your-laptop/"><u>Lightweight and Powerful: The Best GaN-Based USB-C Chargers for Your Laptop</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/problemlos-wiederherstellen-wie-sie-fehlende-systemdateien-nach-dem-update-von-windows-10-ersetzen-konnen-sorgenfrei/"><u>Problemlos Wiederherstellen: Wie Sie Fehlende Systemdateien Nach Dem Update Von Windows 10 Ersetzen Können (Sorgenfrei)</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/schneller-auf-den-punkt-kommen-mit-automatischen-backup-losungen-fur-dein-gmail/"><u>Schneller Auf Den Punkt Kommen Mit Automatischen Backup-Lösungen Für Dein Gmail</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tutorial-menyederhanakan-pengembalian-file-excel-yang-hilang-di-windows-11/"><u>Tutorial Menyederhanakan Pengembalian File Excel Yang Hilang Di Windows 11</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-guide-fixing-your-laptop-screen-when-its-accidentally-rotated/"><u>Ultimate Guide: Fixing Your Laptop Screen When It's Accidentally Rotated</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/wie-richten-sie-eine-schrittweise-datensynchronisierung-in-windows-1187-ein/"><u>Wie Richten Sie Eine Schrittweise Datensynchronisierung in Windows 11/8/7 Ein?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725284939830-windows-11dvd/"><u>Windows 11へようこそ：スマートなDVD作成が今日から始まる！</u></a></li>
 </ul></div>
 

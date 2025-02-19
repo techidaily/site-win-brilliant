@@ -1,7 +1,7 @@
 ---
 title: Download the Latest DEX 3.6.1 Public Beta Version Now - PCDJ
-date: 2025-02-08T06:33:43.790Z
-updated: 2025-02-08T18:44:23.829Z
+date: 2025-02-11T18:53:40.143Z
+updated: 2025-02-18T20:40:12.821Z
 tags:
   - product
 categories:
@@ -38,7 +38,7 @@ _**NOTE:** Since version 3.6.1 is a public beta and [DJ software](https://tools.
 _Have questions about DEX 3.6.1 DJ, **video mixing** and **karaoke software**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -60,18 +60,16 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/07/downloaddex361-coverimage.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-best-practices-for-text-in-after-effects-top-10-plans/"><u>[New] Best Practices for Text in After Effects (Top 10 Plans)</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-structuring-stimulating-podcast-segments-for-2024/"><u>[New] Structuring Stimulating Podcast Segments for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-deciphering-absent-messages-on-snapmap-for-2024/"><u>[Updated] Deciphering Absent Messages on Snapmap for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-best-mac-screen-recorders-a-comprehensive-guide/"><u>[Updated] In 2024, Best Mac Screen Recorders A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-masterful-seo-approaches-for-soaring-in-youtube-video-popularity-for-2024/"><u>[Updated] Masterful SEO Approaches for Soaring in YouTube Video Popularity for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-top-10-essential-free-photo-layering-tools-on-iosandroid/"><u>2024 Approved Top 10 Essential Free Photo Layering Tools on iOS/Android</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728491909932-windows-pc/"><u>初期状態に戻す際のWindows 지원으로PCにおける問題修正ガイド</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ce-videos-seamlessly-using-youtube-studio-editor-for-2024/"><u>Enhance Videos Seamlessly Using YouTube Studio Editor for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/master-your-media-best-6-video-apps-for-macos-big-sur-users-for-2024/"><u>Master Your Media Best 6 Video Apps for macOS Big Sur Users for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/masterclass-sur-lutilisation-de-tuto-sysprep-pour-preparer-des-images-de-deploiement-sous-windows/"><u>Masterclass Sur L'utilisation De Tuto Sysprep Pour Préparer Des Images De Déploiement Sous Windows 지급</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Reasons why Pokémon GPS does not Work On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/top-reliable-data-recovery-techniques-for-synchronized-windows-server-networks/"><u>Top Reliable Data Recovery Techniques for Synchronized Windows Server Networks</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/uninstalling-aomei-boot-selection-tool-effective-techniques-and-steps/"><u>Uninstalling AOMEI Boot Selection Tool - Effective Techniques and Steps</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-first-row-fun-beyond-the-game-top-alternatives/"><u>2024 Approved First Row Fun Beyond the Game Top Alternatives</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/different-methods-to-unlock-your-iphone-7-plus-by-drfone-ios/"><u>Different Methods To Unlock Your iPhone 7 Plus</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/evaluating-the-performance-of-windows-defender-in-malware-prevention-a-report-by-yl-software-expertise/"><u>Evaluating the Performance of Windows Defender in Malware Prevention – A Report by YL Software Expertise</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/expand-your-djing-with-karaoke-cloud-pro-unlimited-machines-access/"><u>Expand Your DJing with Karaoke Cloud Pro - Unlimited Machines Access!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/flawless-coexistence-of-linktree-and-tiktok-biographies/"><u>Flawless Coexistence of Linktree and TikTok Biographies</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-trustworthy-is-windows-defender-insights-from-yl-computings-expert-review/"><u>How Trustworthy Is Windows Defender - Insights From YL Computing's Expert Review</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/maximizing-your-online-speed-effective-strategies-for-enhanced-internet-performance-the-yl-computing-guide/"><u>Maximizing Your Online Speed: Effective Strategies for Enhanced Internet Performance - The YL Computing Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/setting-up-your-energy-options-a-guide-by-yl-computing/"><u>Setting Up Your Energy Options: A Guide by YL Computing</u></a></li>
+<li><a href="https://win-able.techidaily.com/solve-football-manager-2020-stability-issues-and-enjoy-uninterrupted-gaming-experience/"><u>Solve Football Manager 2020 Stability Issues & Enjoy Uninterrupted Gaming Experience</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-essential-checklist-for-yt-creator-mastery/"><u>The Essential Checklist for YT Creator Mastery</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-mastering-gopro-footage-a-step-by-step-mac-editing-guide/"><u>Updated Mastering GoPro Footage A Step-by-Step Mac Editing Guide</u></a></li>
 </ul></div>
 

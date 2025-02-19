@@ -1,7 +1,7 @@
 ---
 title: Easy-to-Follow Steps for Migrating DJ Deckstation DBX3 Records to Microsoft Excel Formats
-date: 2025-02-02T23:24:07.538Z
-updated: 2025-02-08T17:38:20.380Z
+date: 2025-02-17T05:13:32.850Z
+updated: 2025-02-19T00:17:27.735Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ In this quick-tip video demonstration we show you how to open up the DEX 3 datab
 #### DJ Software Quick Tip Video – Importing The DEX 3 Database File Into Excel 2013
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,22 +46,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/08/importintoexcel-coverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-expert-tips-for-smooth-cross-sounding-with-audacity/"><u>[New] 2024 Approved Expert Tips for Smooth Cross-Sounding with Audacity</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-high-speed-sd-accessory-for-sony-a7c-model/"><u>[New] 2024 Approved High-Speed SD Accessory for Sony A7C Model</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/diagnosing-the-mystery-understanding-speaker-pop-noises-insights-by-yl-computing/"><u>Diagnosing the Mystery: Understanding Speaker Pop Noises - Insights by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/essential-questions-every-couple-must-discuss-with-their-wedding-dj-top-10-tips/"><u>Essential Questions Every Couple Must Discuss with Their Wedding DJ - Top 10 Tips</u></a></li>
-<li><a href="https://win-forum.techidaily.com/grabacion-sin-coste-transforma-tu-audio-wav-a-mp3-facilmente-usando-la-herramienta-de-conversion-online-de-movavi/"><u>Grabación Sin Coste: Transforma Tu Audio WAV a MP3 Fácilmente Usando La Herramienta De Conversión Online De Movavi</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/high-definition-bmw-x7-screen-savers-and-desktop-icons-premium-graphics-by-yl-computing/"><u>High-Definition BMW X7 Screen Savers & Desktop Icons - Premium Graphics by YL Computing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebook-media-extractor-quick-mp3-downloads/"><u>In 2024, Facebook Media Extractor – Quick MP3 Downloads</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-6s-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 6s</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-the-ultimate-routine-for-accessing-and-playing-fb-videos-via-apple-tv/"><u>In 2024, The Ultimate Routine for Accessing and Playing FB Videos via Apple TV</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-ntfs-enablingdisabling-file-compression/"><u>Mastering NTFS: Enabling/Disabling File Compression</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/pcdj-annual-roundup-reflecting-on-the-highlights-of-2014/"><u>PCDJ Annual Roundup - Reflecting on the Highlights of 2014</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/retro-inspired-ford-collection-premium-visual-graphics-by-yl-software-for-desktop-and-mobile-use/"><u>Retro-Inspired Ford Collection - Premium Visual Graphics by YL Software for Desktop and Mobile Use</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/solving-your-scanners-connection-problems-a-step-by-step-guide-yl-computing/"><u>Solving Your Scanner's Connection Problems: A Step-by-Step Guide - YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/the-crucial-confrontation-at-red-cliffs-unveiling-its-role-in-moulding-chinese-history-a-yl-software-perspective/"><u>The Crucial Confrontation at Red Cliffs: Unveiling Its Role in Moulding Chinese History – A YL Software Perspective</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-motorola-razr-40-ultra-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Motorola Razr 40 Ultra for Parents | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/yl-softwares-premium-acura-nsx-visual-gallery-stunning-2019-car-photos-for-desktop-backgrounds/"><u>YL Software's Premium Acura NSX Visual Gallery: Stunning 2019 Car Photos for Desktop Backgrounds</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ultimate-2024-camcorder-guide-ranked-and-reviewed/"><u>[New] Ultimate 2024 Camcorder Guide Ranked & Reviewed</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1726222098139-wtv-wmv-movavi/"><u>「ワンクリックで無料オンラインWTV WMV Movaviへの変換ガイド」</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-role-of-visual-aids-in-pedagogy/"><u>2024 Approved The Role of Visual Aids in Pedagogy</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/como-diminuir-o-tamanho-dos-seus-arquivos-mov-online-e-gratuitamente-top-7-dicas/"><u>Como Diminuir O Tamanho Dos Seus Arquivos MOV Online E Gratuitamente - Top 7 Dicas</u></a></li>
+<li><a href="https://fox-info.techidaily.com/essential-guide-to-selecting-best-church-livestreamers-for-2024/"><u>Essential Guide to Selecting Best Church Livestreamers for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/flat-screen-video-playback-issue-resolved-no-sound-with-movavi-othon/"><u>Flat-Screen Video Playback Issue Resolved - No Sound with Movavi Othon</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/fuldstaendig-hjaelpsomhed-omsetning-af-alle-videotydmaerker-med-movavi-video-editor-og-det-bedste-kodeksudsaettelse/"><u>Fuldstændig Hjælpsomhed - Omsetning Af Alle Videotydmærker Med Movavi Video Editor Og Det Bedste Kodeksudsættelse</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/gratuito-e-online-converter-imagens-em-formato-pgm-com-a-ferramenta-de-conversao-de-imagens-do-movavi/"><u>Gratuito E Online: Converter Imagens Em Formato PGM Com a Ferramenta De Conversão De Imagens Do Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guia-rapida-para-convertir-videos-wmv-en-musica-aiff-gratuita-a-traves-de-software-en-linea/"><u>Guía Rápida Para Convertir Videos WMV en Música AIFF Gratuita a Través De Software en Línea</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-innovations-in-portraying-chrono-displacement-on-screen/"><u>In 2024, Innovations in Portraying Chrono-Displacement on Screen</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimizing-chatgpt-with-new-plugins/"><u>Optimizing ChatGPT with New Plugins</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/perfect-your-spreadsheets-a-step-by-step-tutorial-on-period-placement-for-dates-in-excel/"><u>Perfect Your Spreadsheets: A Step-by-Step Tutorial on Period Placement for Dates in Excel</u></a></li>
+<li><a href="https://games-able.techidaily.com/sidestep-recurring-spending-unsubscribe-from-steam/"><u>Sidestep Recurring Spending: Unsubscribe From Steam</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/transformer-un-fichier-audio-m4b-en-format-mp4-gratuit-sur-internet-avec-movavi/"><u>Transformer Un Fichier Audio M4B en Format MP4 Gratuit - Sur Internet Avec Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tre-metodi-ottimi-per-incorporare-suoni-in-una-registrazione-video/"><u>Tre Metodi Ottimi per Incorporare Suoni in Una Registrazione Video</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-iphone-11-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>Unlock Your iPhone 11 in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/vob/"><u>VOBファイルを完全無料でオンライン変換 - 動画魔童</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-10-update-failure-cracking-the-0xc1900208-barrier-a-comprehensive-fix/"><u>Windows 10 Update Failure - Cracking the 0xC1900208 Barrier: A Comprehensive Fix</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/wmvflv-vidiwave-convert-web-media-free/"><u>オンラインで安くWMV・FLV形式変換 – VidiWave - Convert Web Media Free</u></a></li>
 </ul></div>
 

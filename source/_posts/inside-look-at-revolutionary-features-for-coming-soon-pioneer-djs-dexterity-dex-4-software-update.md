@@ -1,7 +1,7 @@
 ---
 title: Inside Look at Revolutionary Features for Coming-Soon Pioneer DJ's Dexterity (DEX) 4 Software Update
-date: 2025-02-05T05:31:56.986Z
-updated: 2025-02-09T05:52:29.191Z
+date: 2025-02-17T04:37:10.447Z
+updated: 2025-02-18T22:11:14.333Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ Additionally, the introduction of PADs with versatile modes like Loop Rolls, Sli
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## DEX 4 Feature Highlights:
@@ -64,7 +64,7 @@ this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see
 * new controller: RANE Four
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other features:
@@ -91,7 +91,7 @@ this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see
 **_Stay tuned, we expect to drop DEX 4 very soon!_** 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -113,24 +113,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2024/08/DEX34-preview-cover.jpg?fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cutting-edge-cinematography-best-film-cameras-for-all-experts/"><u>[New] 2024 Approved Cutting Edge Cinematography Best Film Cameras for All Experts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-on-the-go-cinematographers-essentials/"><u>[New] On-the-Go Cinematographer’s Essentials</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-chrome-compatibility-solving-media-errors-for-2024/"><u>[Updated] Chrome Compatibility Solving Media Errors for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-breakthrough-techniques-for-creative-fb-video-campaigns/"><u>[Updated] In 2024, Breakthrough Techniques for Creative FB Video Campaigns</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-mastering-podcast-submission-googles-steps-for-2024/"><u>[Updated] Mastering Podcast Submission Google's Steps for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/word-10/"><u>「Word ファイルの失われたデータを取り戻す究極の方法トップ10」</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-infinix-smart-7-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/windows-server-20192022/"><u>完整用户手册：将Windows Server 2019升级到最新的2022年版本</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/aomei-backupper-vs-macrium-reflect-eine-vergleichende-analyse-der-beiden-fuhrenden-datensicherungsprogramme/"><u>AOMEI Backupper Vs. Macrium Reflect - Eine Vergleichende Analyse Der Beiden Führenden Datensicherungsprogramme</u></a></li>
-<li><a href="https://win11.techidaily.com/correcting-display-not-responding-on-windows-11/"><u>Correcting 'Display Not Responding' On Windows 11</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/especificaciones-tecnicas-esenciales-para-optimizar-el-sistema-con-windows-11-procesador-ram-y-vga/"><u>Especificaciones Técnicas Esenciales Para Optimizar El Sistema Con Windows 11 - Procesador, RAM Y VGA</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fast-solutions-resolving-your-iphone-14-or-15s-transfer-preparation-hang-up/"><u>Fast Solutions: Resolving Your iPhone 14 or 15'S Transfer Preparation Hang-Up</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fixing-itunes-and-iphone-picture-sync-problems-step-by-step-solutions/"><u>Fixing iTunes and iPhone Picture Sync Problems: Step-by-Step Solutions</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/fixing-windows-11-startup-problems-solved-and-explained/"><u>Fixing Windows 11 Startup Problems: Solved and Explained</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/icloud/"><u>ICloud 備份應用程式錯失拼照元件解決方法</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Vivo Y17s? | Dr.fone</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-mavericks-video-editing-software-easily-edit-mp4-files-for-2024/"><u>New Mavericks Video Editing Software Easily Edit MP4 Files for 2024</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/probleme-beim-synchronisieren-ihrer-iphon-fotos-auf-deinem-mac-losen/"><u>Probleme Beim Synchronisieren Ihrer iPhon-Fotos Auf Deinem Mac Lösen</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tailored-workout-blueprints-for-health-and-security-via-ai/"><u>Tailored Workout Blueprints for Health & Security via AI</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-harnessing-youtube-content-for-engaging-animation-gifs/"><u>[New] 2024 Approved Harnessing YouTube Content for Engaging Animation GIFs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-multitask-media-consumption-harnessing-pip-feature-in-netflix/"><u>[New] In 2024, Mastering Multitask Media Consumption Harnessing PIP Feature in Netflix</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-profit-from-reddit-easy-style-top-13-beginner-strategies/"><u>[Updated] Profit From Reddit Easy Style Top 13 Beginner Strategies</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-snap-and-save-games-the-nvidia-way/"><u>[Updated] Snap & Save Games - The NVIDIA Way</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/experience-customized-navigation-powered-by-the-innovation-of-cookiebot/"><u>Experience Customized Navigation: Powered by the Innovation of Cookiebot</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-i-fixed-my-windows-10-lagging-shutdown-woes/"><u>How I Fixed My Window's 10 Lagging Shutdown Woes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-install-brother-hl-l2340dw-printer-on-your-windows-device-download-guide/"><u>How to Install Brother HL-L2340DW Printer on Your Windows Device: Download Guide</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016985591-revive-your-zoom-audio-on-windows-and-mac-no-more-muted-participant-woes/"><u>Revive Your Zoom Audio on Windows and Mac – No More Muted Participant Woes</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
 </ul></div>
 

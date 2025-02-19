@@ -1,7 +1,7 @@
 ---
 title: Discover the Latest Version of LYRX Karaoke Software (v1.5) - Improved Features and Performance!
-date: 2025-02-04T02:01:20.027Z
-updated: 2025-02-09T03:18:55.604Z
+date: 2025-02-11T20:50:11.669Z
+updated: 2025-02-18T19:08:09.172Z
 tags:
   - product
 categories:
@@ -27,7 +27,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### New, Fixed, and Updated in LYRX 1.5
@@ -48,7 +48,7 @@ As always, version 1.5 is a free update for exiting LYRX customers. Simply downl
 _Have questions about the latest 1.5 version of our LYRX **karaoke player**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -70,20 +70,20 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2019/07/lyrx15-cover.jpg?fit=706%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-streamlining-your-workflow-with-zooms-pre-meeting-protocol/"><u>[New] Streamlining Your Workflow with Zoom's Pre-Meeting Protocol</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-hidden-layers-to-understanding-instagram-stories-for-2024/"><u>[New] The Hidden Layers to Understanding Instagram Stories for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-screencastify-recorder-a-complete-step-wise-how-to-guide/"><u>[Updated] 2024 Approved Screencastify Recorder - A Complete Step-Wise How-To Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/44cm44ol44kz44ol44kz44ob44oj44oz44on44or44gn44gk5rcx44gr5ywl44kk44gu5yuv55s744ks5a6j5ywo44gr5lplusd566h44gz44kl44gf44kb44gu44ks44kk44oj44cn/"><u>「ニコニコチャンネルでお気に入りの動画を安全に保管するためのガイド」</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726030631911-and/"><u>動画のみで音声を記録するための全ての方法、紹介&比較</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726028047594-pc3/"><u>美しい画像プレゼンテーションを構築するためのPC上での3つの効果的な方法</u></a></li>
-<li><a href="https://blog-min.techidaily.com/advanced-winxdvd-toolkit-for-dvd-extraction-and-improvement-ai-enhanced-video-editing-software-plus-iphone-sync-capabilities/"><u>Advanced WinXDVD Toolkit for DVD Extraction & Improvement: AI Enhanced Video Editing Software Plus iPhone Sync Capabilities</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/cant-transform-your-ve-file-into-mp4-format-learn-the-correct-technique-now/"><u>Can't Transform Your VE File Into MP4 Format? Learn the Correct Technique Now!</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/free-audio-balancers-top-7-pick-for-optimizing-sound-on-your-windows/"><u>Free Audio Balancers: Top 7 Pick for Optimizing Sound on Your Windows</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-your-go-to-list-for-immersive-sandboxes/"><u>In 2024, Your Go-To List for Immersive Sandboxes</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1726026902836-pc/"><u>PCにて自らの声を録音するステップバイステップマニュアル</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/resolving-program-failed-to-launch-issues-on-windows-a-comprehensive-guide-by-yl-computing/"><u>Resolving 'Program Failed to Launch' Issues on Windows: A Comprehensive Guide - By YL Computing</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-enjoying-low-cost-flight-in-depth-look-at-the-syma-s111g-hovercraft-for-indoors/"><u>The Ultimate Guide to Enjoying Low-Cost Flight: In-Depth Look at the Syma S111G Hovercraft for Indoors</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-kid-friendly-smartphones-a-comprehensive-guide/"><u>Top Kid-Friendly Smartphones : A Comprehensive Guide</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/uncovering-8-honestly-backed-promotion-services-for-2024/"><u>Uncovering 8 Honestly Backed Promotion Services for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-premier-auditory-options-for-iphones/"><u>[Updated] Premier Auditory Options for iPhones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlock-your-marketing-potential-with-our-50plus-free-youtube-banners/"><u>2024 Approved Unlock Your Marketing Potential with Our 50+ Free YouTube Banners</u></a></li>
+<li><a href="https://extra-information.techidaily.com/aperture-alchemy-crafting-the-top-10-lens-list-for-2024/"><u>Aperture Alchemy Crafting the Top 10 Lens List for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/avoiding-common-pitfalls-in-digital-marketing-journey-for-2024/"><u>Avoiding Common Pitfalls in Digital Marketing Journey for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-fixes-for-advapi32dll-not-detected-or-lost-mistakes/"><u>Comprehensive Fixes for Advapi32.dll Not Detected or Lost Mistakes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/conversor-de-m2ts-a-formatos-variados-incluidos-avi-mp4-y-mkv-convertidor-m2ts-movavi/"><u>Conversor De M2TS a Formatos Variados Incluidos AVI, MP4 Y MKV - Convertidor M2TS Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-safeguard-your-dual-boot-pc-with-windows-and-ubuntu-through-effective-backups/"><u>How To Safeguard Your Dual-Boot PC with Windows and Ubuntu Through Effective Backups</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/lerne-wie-du-windows-11-mithilfe-eines-usb-sticks-installierst-5-einfache-schritte/"><u>Lerne Wie Du Windows 11 Mithilfe Eines USB-Sticks Installierst - 5 Einfache Schritte</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/methodes-faciles-pour-transferer-votre-systeme-windows-efficacement-entre-deux-ssds/"><u>Méthodes Faciles Pour Transférer Votre Système Windows Efficacement Entre Deux SSDs</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-troubleshooting-guide-to-keep-your-computer-awake-and-alert/"><u>Quick Troubleshooting Guide to Keep Your Computer Awake and Alert</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/recupera-in-modo-facile-i-tuoi-file-oscuri-con-la-tua-guida-alla-risoluzione-definitiva/"><u>Recupera in Modo Facile I Tuoi File Oscuri Con La Tua Guida Alla Risoluzione Definitiva</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/sichere-kopien-gewahrleisten-methoden-zur-sicherung-ihres-wd-my-passports-auf-windows-7-8-10-and-11/"><u>Sichere Kopien Gewährleisten! Methoden Zur Sicherung Ihres WD My Passports Auf Windows 7, 8, 10 & 11</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-oppo-find-x6-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/top-3-solutions-logicielles-pour-transfert-de-donnees-vers-et-depuis-hdd-ssd-cles-usb-and-cartes-memoire/"><u>Top 3 Solutions Logicielles Pour Transfert De Données Vers Et Depuis HDD, SSD, Clés USB & Cartes Mémoire</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/wie-man-die-seagate-external-hd-auf-einem-windows-11-system-reinigt-und-optimiert/"><u>Wie Man Die Seagate External HD Auf Einem Windows 11-System Reinigt Und Optimiert</u></a></li>
 </ul></div>
 
