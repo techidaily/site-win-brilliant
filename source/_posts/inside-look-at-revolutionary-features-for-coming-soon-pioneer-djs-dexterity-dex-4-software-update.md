@@ -1,7 +1,7 @@
 ---
 title: Inside Look at Revolutionary Features for Coming-Soon Pioneer DJ's Dexterity (DEX) 4 Software Update
-date: 2025-02-17T04:37:10.447Z
-updated: 2025-02-18T22:11:14.333Z
+date: 2025-03-05T17:07:55.060Z
+updated: 2025-03-07T20:50:26.992Z
 tags:
   - product
 categories:
@@ -25,10 +25,6 @@ Additionally, the introduction of PADs with versatile modes like Loop Rolls, Sli
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## DEX 4 Feature Highlights:
 
@@ -63,10 +59,6 @@ While it is a lot more cumbersome than using a controller, on the user interface
 this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see https://www.digitaldjtips.com/fuzzy-keymixing-the-new-way-to-dj/
 * new controller: RANE Four
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Other features:
 
 * added new Audio Routing options for Booth (output) and Record (input)
@@ -90,10 +82,6 @@ this allows key mixing with just a +/- 1 (or max +/- 2) semitones key shift; see
 
 **_Stay tuned, we expect to drop DEX 4 very soon!_** 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Related_
 
 https://i0.wp.com/pcdj.com/wp-content/uploads/2024/08/DEX34-preview-cover.jpg?fit=1031%2C623&ssl=1 623 1031 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2024-08-12 12:57:132024-08-12 12:57:22A Deeper Dive Into What’s New in the Forthcoming Release of DEX 4}
@@ -113,19 +101,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2024/08/DEX34-preview-cover.jpg?fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-harnessing-youtube-content-for-engaging-animation-gifs/"><u>[New] 2024 Approved Harnessing YouTube Content for Engaging Animation GIFs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-mastering-multitask-media-consumption-harnessing-pip-feature-in-netflix/"><u>[New] In 2024, Mastering Multitask Media Consumption Harnessing PIP Feature in Netflix</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-profit-from-reddit-easy-style-top-13-beginner-strategies/"><u>[Updated] Profit From Reddit Easy Style Top 13 Beginner Strategies</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-snap-and-save-games-the-nvidia-way/"><u>[Updated] Snap & Save Games - The NVIDIA Way</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/can-you-update-your-tool-with-yl-computings-latest-software-enhancements/"><u>Can You Update Your Tool with YL Computing's Latest Software Enhancements?</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/easy-access-tips-for-windows-settings-via-control-panel-yl-tech-insights/"><u>Easy Access Tips for Windows Settings via Control Panel - YL Tech Insights</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/experience-customized-navigation-powered-by-the-innovation-of-cookiebot/"><u>Experience Customized Navigation: Powered by the Innovation of Cookiebot</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-i-fixed-my-windows-10-lagging-shutdown-woes/"><u>How I Fixed My Window's 10 Lagging Shutdown Woes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-install-brother-hl-l2340dw-printer-on-your-windows-device-download-guide/"><u>How to Install Brother HL-L2340DW Printer on Your Windows Device: Download Guide</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-to-restore-broken-or-faulty-hardware-elements-using-dedicated-software-a-guide-by-yl-computing/"><u>How to Restore Broken or Faulty Hardware Elements Using Dedicated Software: A Guide by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/key-influences-on-cryptocurrency-valuations-expert-analysis-by-yl-computing-and-yl-software-teams/"><u>Key Influences on Cryptocurrency Valuations: Expert Analysis by YL Computing & YL Software Teams</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016985591-revive-your-zoom-audio-on-windows-and-mac-no-more-muted-participant-woes/"><u>Revive Your Zoom Audio on Windows and Mac – No More Muted Participant Woes</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/rihanna-inspired-wallpapers-and-visuals-explore-our-collection-by-yl-computing/"><u>Rihanna-Inspired Wallpapers & Visuals: Explore Our Collection by YL Computing</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/your-opinion-matters-cast-your-votes-on-our-beat-mastery-showdown-and-select-winning-music-video/"><u>Your Opinion Matters - Cast Your Votes on Our Beat Mastery Showdown and Select Winning Music Video!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-no-pressure-pc-games-guide-for-2024/"><u>[New] Best No-Pressure PC Games Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-top-15-video-downloader-add-ons-facebook-and-firefox-compatible-for-2024/"><u>[Updated] Top 15 Video Downloader Add-Ons Facebook & FireFox Compatible for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/5lplush6ac85ocn44gu6auy44ge5pa55rov77ya5pya5paw44gn5ymk6zmk44gv44km44gf44oh44o844k44ks5ywd44gr5oi744gz5oml5byv44gn/"><u>信頼性の高い方法：最新で削除されたデータを元に戻す手引き</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-gpt/"><u>选择专业Windows GPT赛博克隆解决方案 – 提高系统安全性和效率</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/6yen5paw5a2457pluss6loh5rqq5zue5ps25qg2566h55cg77ya5aac5l2v6ycg6l2j5rc45lmf5yiq6zmk/"><u>重新學習資源回收桶管理：如何逆轉永久刪除</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/como-capturar-la-pantalla-con-obs-studio-una-guia-detallada-para-el-rendimiento-optimo-tutoriales-de-movavi/"><u>Cómo Capturar La Pantalla Con OBS Studio: Una Guía Detallada Para El Rendimiento Óptimo - Tutoriales De Movavi</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1728491329377-excel-4/"><u>Excel 表格失去的真相：深入了解 4 种恢复技巧</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-easily-forward-or-copy-messages-from-your-yahoo-mail-top-3-methods-revealed/"><u>How to Easily Forward or Copy Messages From Your Yahoo Mail: Top 3 Methods Revealed</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-from-apple-iphone-14-plus-smoothly-by-drfone-ios/"><u>How To Remove iCloud From Apple iPhone 14 Plus Smoothly</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-oneplus-nord-ce-3-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on OnePlus Nord CE 3 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensible-list-best-games-music-found-online/"><u>In 2024, Comprehensible List Best Games’ Music Found Online</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/optimizing-naraka-bladepoint-solutions-for-smooth-gameplay-and-improved-frame-rates/"><u>Optimizing Naraka: Bladepoint - Solutions for Smooth Gameplay & Improved Frame Rates</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unable-to-locate-the-webpage-understanding-404-errors/"><u>Unable to Locate the Webpage: Understanding 404 Errors</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expressing Affection - Our Playlist with Your Love
-date: 2025-02-12T20:27:37.700Z
-updated: 2025-02-19T02:28:00.225Z
+date: 2025-03-03T16:26:58.248Z
+updated: 2025-03-07T19:45:46.889Z
 tags:
   - product
 categories:
@@ -37,10 +37,6 @@ Over the last two years with the release of our new [DEX 3](https://tools.techid
 
 We are set to build up our [DJ mixing software](https://tools.techidaily.com/pcdj/products/) platform starting with the DEX 3.8 release scheduled to release in about 2-3 weeks. We’re all excited about what we have in store for our public over the next few months. We want to impress you as much as you’ve impressed upon us. Thank you, and _we heart you_!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Related_
 
 https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?fit=706%2C360&ssl=1 360 706 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2017-02-14 11:35:232018-10-03 15:33:38Love is in the air…17 years and counting!}
@@ -60,17 +56,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2017/02/weheartyou-coverimage.jpg?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-learn-to-redefine-your-instagram-sound-with-ease-for-2024/"><u>[New] Learn to Redefine Your Instagram Sound with Ease for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-guide-to-delivering-engaging-ppt-in-google-meet-mobiledesktop/"><u>[Updated] In 2024, Guide to Delivering Engaging PPT in Google Meet (Mobile/Desktop)</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-honor-100-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210546572-9781914529078-because-you-matter/"><u>Because You Matter | Free Book</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/desactiva-el-inicio-rapido-en-windows-11-tres-metodos-sencillos/"><u>Desactiva El Inicio Rápido en Windows 11: Tres Métodos Sencillos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/lightweight-and-powerful-the-best-gan-based-usb-c-chargers-for-your-laptop/"><u>Lightweight and Powerful: The Best GaN-Based USB-C Chargers for Your Laptop</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/problemlos-wiederherstellen-wie-sie-fehlende-systemdateien-nach-dem-update-von-windows-10-ersetzen-konnen-sorgenfrei/"><u>Problemlos Wiederherstellen: Wie Sie Fehlende Systemdateien Nach Dem Update Von Windows 10 Ersetzen Können (Sorgenfrei)</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/schneller-auf-den-punkt-kommen-mit-automatischen-backup-losungen-fur-dein-gmail/"><u>Schneller Auf Den Punkt Kommen Mit Automatischen Backup-Lösungen Für Dein Gmail</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/tutorial-menyederhanakan-pengembalian-file-excel-yang-hilang-di-windows-11/"><u>Tutorial Menyederhanakan Pengembalian File Excel Yang Hilang Di Windows 11</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-guide-fixing-your-laptop-screen-when-its-accidentally-rotated/"><u>Ultimate Guide: Fixing Your Laptop Screen When It's Accidentally Rotated</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/wie-richten-sie-eine-schrittweise-datensynchronisierung-in-windows-1187-ein/"><u>Wie Richten Sie Eine Schrittweise Datensynchronisierung in Windows 11/8/7 Ein?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725284939830-windows-11dvd/"><u>Windows 11へようこそ：スマートなDVD作成が今日から始まる！</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-stepwise-journey-becoming-a-pro-with-audacity-for-recording/"><u>[New] Stepwise Journey Becoming a Pro with Audacity for Recording</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-vr-game-creators-to-watch/"><u>[New] Top VR Game Creators To Watch</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-leveraging-edit-tools-for-youtube-videos-post-publishment/"><u>[Updated] Leveraging Edit Tools for YouTube Videos Post-Publishment</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-real-time-speech-processing-and-action-at-no-charge/"><u>2024 Approved Real-Time Speech Processing & Action at No Charge</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-you-fix-a-broken-gpu-expert-advice-from-yl-computing-the-ultimate-guide/"><u>Can You Fix a Broken GPU: Expert Advice From YL Computing - The Ultimate Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-pixel-fold-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Pixel Fold</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722880273215-discover-our-handpicked-tv-gems-available-on-max-today/"><u>Discover Our Handpicked TV Gems Available On Max Today!</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/does-windows-defender-operate-correctly-insights-from-yl-software-experts/"><u>Does Windows Defender Operate Correctly? Insights From YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/enabling-twain-functionality-for-scanners-in-windows-steps-and-tips-from-yl-software/"><u>Enabling TWAIN Functionality for Scanners in Windows: Steps and Tips From YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/enhancing-system-speed-and-performance-in-windows-nine-professional-guidance-by-yl-software-experts/"><u>Enhancing System Speed and Performance in Windows Nine – Professional Guidance by YL Software Experts</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/enhancing-your-laptop-speed-and-power-a-compreh-groph-guide-by-yl-computing-with-yl-software-innovations/"><u>Enhancing Your Laptop Speed and Power: A Compreh Groph Guide by YL Computing with YL Software Innovations</u></a></li>
+<li><a href="https://win11.techidaily.com/fine-tuning-screen-resolution-in-windows-11/"><u>Fine-Tuning Screen Resolution in Windows 11</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-honor-x8b-frp-by-drfone-android/"><u>How Can We Bypass Honor X8b FRP?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-strategies-to-enhance-tiktoks/"><u>In 2024, Innovative Strategies to Enhance TikToks</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/mastering-display-configuration-a-step-by-step-walkthrough-using-windows-control-panel-courtesy-of-yl-software/"><u>Mastering Display Configuration: A Step-by-Step Walkthrough Using Windows Control Panel - Courtesy of YL Software</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/pcdj-and-dex-3-now-compatible-with-macos-big-sur-enhancements-in-djing-software/"><u>PCDJ and DEX 3 Now Compatible with macOS Big Sur: Enhancements in DJing Software</u></a></li>
+<li><a href="https://extra-support.techidaily.com/productive-pastimes-during-your-podcast-engagement-for-2024/"><u>Productive Pastimes During Your Podcast Engagement for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-guide-fix-issues-with-non-functional-wifi-adapter-tips-from-yl-computing/"><u>Troubleshooting Guide: Fix Issues with Non-Functional WiFi Adapter - Tips From YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/unlocking-kjs-secrets-how-karaoke-cloud-pro-delivers-ultimate-dj-tools/"><u>Unlocking KJ's Secrets: How Karaoke Cloud Pro Delivers Ultimate DJ Tools</u></a></li>
 </ul></div>
 

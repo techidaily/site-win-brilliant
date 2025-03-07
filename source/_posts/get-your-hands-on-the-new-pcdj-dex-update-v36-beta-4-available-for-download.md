@@ -1,7 +1,7 @@
 ---
 title: Get Your Hands on the New PCDJ DEX Update - V3.6 Beta 4, Available for Download!
-date: 2025-02-17T02:59:29.292Z
-updated: 2025-02-18T21:48:10.131Z
+date: 2025-03-01T21:41:18.719Z
+updated: 2025-03-07T16:39:08.172Z
 tags:
   - product
 categories:
@@ -34,10 +34,6 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Here’s What’s New And Changed In DEX 3.6 Beta 4
 
 **3.6.0 beta 4 (both Mac/Windows).**  
@@ -58,10 +54,6 @@ Also new in DEX 3.6 beta 4 is the ability to **record your video mix set on Wind
 
 _If you have any questions or problems running the DEX 3.6 **DJ and Video Mixing Software** beta version please post to the [DEX 3 user forum](https://tools.techidaily.com/pcdj/products/)._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### _Related_
 
 https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg?fit=530%2C298&ssl=1 298 530 Ryan Sherr https://www.pcdj.com/wp-content/uploads/2021/07/pcdj-main-logo-2.png Ryan Sherr2016-04-13 14:10:512018-10-03 15:34:51DJ Software | DEX 3.6 (Beta 4) Is Available For Download}
@@ -81,19 +73,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/04/dex36-beta4-coverimage.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-explore-our-top-5-affordable-keyboards-to-boost-your-gameplay/"><u>[New] Explore Our Top 5 Affordable Keyboards to Boost Your Gameplay</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-your-guide-to-free-non-networked-android-games/"><u>[Updated] Your Guide to Free, Non-Networked Android Games</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/1728481482307-hdd/"><u>「ローカルHDDに安全な方法でネットワークドライブをセーブするガイド」</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-post-a-link-on-instagram-stories-and-posts/"><u>2024 Approved How to Post a Link on Instagram Stories and Posts</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-top-free-speech-to-text-apps-for-mac-you-need-to-try/"><u>2024 Approved Top Free Speech to Text Apps for Mac You Need to Try</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-trophy-chain-for-engaged-audiences/"><u>2024 Approved YouTube's Trophy Chain for Engaged Audiences</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/inland-ssd/"><u>最佳選擇 - Inland SSD複製軟件(無需付費) - 克服初次開機時的挑戰</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/come-aggiornare-o-ripristinare-windows-10-usando-la-riga-di-comando-una-guida-completa/"><u>Come Aggiornare O Ripristinare Windows 10 Usando La Riga Di Comando: Una Guida Completa</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/descubre-donde-se-guardan-tus-marcadores-de-internet-en-windows-una-guia-detallada-para-windows-10-y-11/"><u>Descubre Dónde Se Guardan Tus Marcadores De Internet en Windows: Una Guía Detallada Para Windows 10 Y 11</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/desde-cargar-hasta-guardar-guia-completa-para-la-conversion-de-archivos-flv-a-ogg-sin-costo-free-online/"><u>Desde Cargar Hasta Guardar: Guía Completa Para La Conversión De Archivos FLV a Ogg Sin Costo - Free Online</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-architecting-authoritative-adjuncts/"><u>In 2024, Architecting Authoritative Adjuncts</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/las-mejores-herramientas-gratis-para-backup-de-windows-gro-10-explicadas-a-nivel-principiante/"><u>Las Mejores Herramientas Gratis Para Backup De Windows Gro 10 Explicadas a Nivel Principiante</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-s24-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy S24 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/verloren-gegangene-desktop-ordnersuchprogramme-fur-windows-1011-schnellhilfe-zur-wiederherstellung/"><u>Verloren Gegangene Desktop-Ordnersuchprogramme Für Windows 10/11 – Schnellhilfe Zur Wiederherstellung!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-excellence-in-editing-selecting-the-right-software/"><u>[Updated] 2024 Approved Excellence in Editing Selecting the Right Software</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-dissecting-mr-beasts-financial-health-for-2024/"><u>[Updated] Dissecting Mr. Beast’s Financial Health for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-best-gopro-helmet-mounts-and-how-to-use-them/"><u>[Updated] In 2024, Best GoPro Helmet Mounts and How to Use Them</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-pathway-to-mastering-srt-files/"><u>2024 Approved Step-by-Step Pathway to Mastering SRT Files</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/achieve-lightning-fast-performance-essential-system-tweaks-by-yl-computing/"><u>Achieve Lightning-Fast Performance: Essential System Tweaks by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/adjusting-network-preferences-via-control-panel-a-guide-from-yl-software-expertise/"><u>Adjusting Network Preferences via Control Panel: A Guide From YL Software Expertise</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-meizu-21-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Meizu 21 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/bridging-the-gap-a-guide-to-casting-disneyplus-from-your-device-onto-a-chromecast-enabled-tv/"><u>Bridging the Gap: A Guide to Casting Disney+ From Your Device Onto a Chromecast-Enabled TV</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/bypassing-drm-on-disney-media-tips-for-legal-disc-ripping-and-conversion/"><u>Bypassing DRM on Disney Media: Tips for Legal Disc Ripping and Conversion</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/can-a-latest-update-on-your-pcs-windows-os-influence-its-hardware-speed-expertise-from-yl-software/"><u>Can a Latest Update on Your PC's Windows OS Influence Its Hardware Speed? - Expertise From YL Software</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-from-your-apple-iphone-6-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card from Your Apple iPhone 6 Apple ID and Apple Pay</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-samsung-galaxy-a23-5g-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Samsung Galaxy A23 5G.</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-swiftly-open-control-panel-on-windows-11-expert-tips-by-yl-software/"><u>How to Swiftly Open Control Panel on Windows 11: Expert Tips by YL Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-your-2013-wedding-dj-rate-fairly-priced-compared-to-the-market-standard/"><u>Is Your 2013 Wedding DJ Rate Fairly Priced Compared to the Market Standard?</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/is-your-computers-slow-performance-due-to-hddssd-problems-or-cpu-faults-insights-by-yl-computing/"><u>Is Your Computer's Slow Performance Due to HDD/SSD Problems or CPU Faults? Insights by YL Computing</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/master-hardware-and-sound-configuration-in-windows-a-comprehensive-walkthrough-by-yl-computing-essential-yl-tech-hacks/"><u>Master Hardware and Sound Configuration in Windows: A Comprehensive Walkthrough by YL Computing | Essential YL Tech Hacks</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/windows-security-essentials-how-to-lock-down-files-with-passwords-using-yls-simple-method/"><u>Windows Security Essentials: How to Lock Down Files with Passwords Using YL's Simple Method</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/yl-computing-presents-hauntingly-beautiful-elsa-inspired-goth-graphics-for-your-space/"><u>YL Computing Presents: Hauntingly Beautiful Elsa-Inspired Goth Graphics for Your Space</u></a></li>
 </ul></div>
 
